@@ -42,3 +42,301 @@
 Nếu thấy vui: “Hôm nay mình rất vui, cảm ơn bạn đã dành thời gian. Nếu bạn cũng muốn, hôm khác tụi mình thử quán bánh bạn kể nhé.” Nếu không thấy hợp: cảm ơn và nói rõ khi cần, đừng duy trì hy vọng bằng lời hứa mơ hồ.
 
 **Bài tập:** Lập một lịch hẹn 60–90 phút với địa điểm công cộng, chi phí vừa sức, cách di chuyển và phương án nếu trời mưa.
+
+
+
+---
+
+# 📚 CHUYÊN KHẢO MỞ RỘNG — HỒ SƠ NHIỆM VỤ: BUỔI HẸN ĐẦU
+
+## 6. Định nghĩa lại buổi hẹn: không phải kỳ thi tuyển người yêu
+
+Một buổi hẹn đầu tiên chỉ cần trả lời một câu: **Hai người có muốn dành thêm thời gian để hiểu nhau không?**
+
+Không cần kết luận hôn nhân, hợp tuổi, số con và địa chỉ chung cư trong 90 phút. Tệ hơn là coi đây là màn thể hiện để người kia “bị thuyết phục”. Buổi hẹn tốt giúp cả hai **cảm thấy an toàn, được lắng nghe và có quyền là chính mình**.
+
+**Ba mục tiêu thực tế:**
+1. Có một trải nghiệm dễ chịu.
+2. Hiểu thêm về sở thích, tính cách, giá trị của nhau.
+3. Kết thúc rõ ràng, tôn trọng dù muốn gặp lại hay không.
+
+> *Sư phụ dặn: “Đừng đi uống trà sữa mà mang theo bảng cân đối tài sản và kế hoạch đón dâu.”*
+
+## 7. Từ lời mời đến lịch hẹn: quy trình năm bước
+
+### Bước 1 — Có đủ mức độ quen biết và sự thoải mái
+
+Nếu mới trò chuyện vài câu, mời gặp có thể hơi vội tùy hoàn cảnh. Không có thời gian chuẩn, nhưng nên cân nhắc phản hồi và sự tự nguyện của người kia.
+
+### Bước 2 — Đề nghị cụ thể
+
+“Mình thích nói chuyện với bạn. Nếu bạn muốn, chiều thứ Bảy tụi mình gặp uống cà phê khoảng một tiếng ở [quán công cộng] nhé?”
+
+**Vì sao tốt:** nêu mong muốn, hoạt động, thời điểm, quy mô, cho quyền lựa chọn.
+
+### Bước 3 — Chọn địa điểm thuận tiện
+
+Ưu tiên:
+- Không gian công cộng, dễ tìm.
+- Dễ đi lại cho cả hai.
+- Có thể trò chuyện với mức âm lượng vừa phải.
+- Chi phí phù hợp khả năng.
+- Có phương án về an toàn, thời tiết, giờ về.
+
+Tránh rủ đến nhà riêng ngay khi mới quen, nơi xa xôi biệt lập hoặc địa điểm khiến người kia khó tự rời đi.
+
+### Bước 4 — Chốt và xác nhận
+
+“Mình chốt 3 giờ chiều tại quán [tên] nhé. Nếu có gì thay đổi thì báo nhau trước.” Không cần nhắc 12 lần mỗi ngày.
+
+### Bước 5 — Đến đúng giờ
+
+Nếu trễ: “Mình xin lỗi, xe bị kẹt nên dự kiến đến muộn khoảng 10 phút. Mình sẽ cập nhật nếu có thay đổi.” Đừng biến người kia thành hệ thống theo dõi hành trình GPS của bạn.
+
+## 8. Chọn kiểu hẹn phù hợp — không phải cứ đắt là hay
+
+| Kiểu hẹn | Hợp khi nào | Ưu điểm | Cần lưu ý |
+|---|---|---|---|
+| Cà phê/trà | Mới làm quen | Dễ trò chuyện, linh hoạt | Chọn quán không quá ồn |
+| Hội sách/triển lãm | Cùng thích văn hóa | Có nhiều chủ đề tự nhiên | Không phải ai cũng thích |
+| Đi bộ công viên đông người | Cả hai thích vận động | Nhẹ nhàng, ít tốn | Thời tiết, an toàn, thời gian |
+| Ăn nhẹ | Cùng thích ẩm thực | Có trải nghiệm chia sẻ | Dị ứng, khẩu vị, giá cả |
+| Board game/cafe game | Cùng thích trò chơi | Hài hước, tương tác | Đừng quá cạnh tranh |
+| Hoạt động nhóm | Chưa thoải mái gặp riêng | Ít áp lực | Không mặc định là hẹn lãng mạn |
+
+Một buổi hẹn đắt tiền có thể đẹp, nhưng không cần dùng chi phí để chứng minh “độ nghiêm túc”.
+
+## 9. Ngân sách không xấu hổ
+
+**Ví dụ ngân sách minh họa**, không phải giá thị trường cố định:
+
+- Đồ uống: mức bạn đủ thoải mái chi trả.
+- Di chuyển: tính cả chiều đi/về.
+- Một khoản dự phòng nhỏ cho tình huống phát sinh.
+- Nếu dự định mời, nói rõ bằng thái độ thoải mái; nếu cần chia tiền, điều đó cũng bình thường.
+
+**Hội thoại:**
+- Bạn: “Hôm nay để mình mời nước nhé.”
+- Người ấy: “Thôi mình chia đôi cho thoải mái.”
+- Bạn: “Ừ, được mà.”
+→ Mọi người đều giữ được sự tự chủ. Đừng tranh trả tiền như trận chung kết võ lâm.
+
+Không ai “nợ” một nụ hôn, lời tỏ tình hay buổi hẹn tiếp theo vì ai đó đã trả hóa đơn.
+
+## 10. Lịch hẹn 75 phút mẫu
+
+Đây là **mẫu linh hoạt**, không phải thời khóa biểu quân sự:
+
+- **Phút 0–10: Khởi động.** Chào, gọi đồ, hỏi thăm đường đi, nhận xét về quán.
+- **Phút 10–25: Chủ đề nhẹ.** Học tập/công việc, phim, món ăn, sở thích.
+- **Phút 25–50: Chia sẻ sâu vừa phải.** Những điều làm bạn hào hứng, chuyến đi thú vị, việc đang muốn thử.
+- **Phút 50–65: Nối tương đồng.** Điều hai người cùng thấy vui, hoạt động muốn tham gia.
+- **Phút 65–75: Kết thúc.** Cảm ơn, trao đổi nếu muốn gặp lại.
+
+Khi cuộc trò chuyện đang vui, không cần kiểm tra đồng hồ để chuyển chương. Nếu người kia muốn về sớm, tôn trọng ngay.
+
+## 11. 25 chủ đề mở rộng theo độ thân
+
+### Nhóm A — Dễ bắt đầu
+1. Món ăn cuối tuần bạn thường muốn ăn.
+2. Nơi gần đây bạn muốn quay lại.
+3. Bài hát nghe khi làm việc.
+4. Phim/bộ sách bạn vừa xem.
+5. Việc nhỏ làm bạn vui trong tuần.
+
+### Nhóm B — Kỷ niệm
+6. Chuyến đi đáng nhớ.
+7. Một lần nấu ăn thất bại vui.
+8. Lần đầu thử một hoạt động mới.
+9. Người thầy/câu chuyện học tập để lại ấn tượng.
+10. Một kỷ niệm hài với bạn bè.
+
+### Nhóm C — Sở thích & tính cách
+11. Thích lên kế hoạch hay ngẫu hứng khi đi chơi?
+12. Thích cuối tuần sôi động hay yên tĩnh?
+13. Muốn học kỹ năng gì trong năm tới?
+14. Một thứ bạn có thể kể hàng giờ.
+15. Một điều bạn từng nghĩ khó mà cuối cùng làm được.
+
+### Nhóm D — Giá trị cá nhân (nếu cả hai thoải mái)
+16. Một kiểu tình bạn bạn rất trân trọng.
+17. Cách bạn thường nghỉ ngơi khi căng thẳng.
+18. Việc bạn muốn dành thời gian hơn.
+19. Một phẩm chất bạn đánh giá cao ở người khác.
+20. Điều khiến bạn cảm thấy được lắng nghe.
+
+### Nhóm E — Kết nối hai chiều
+21. Hoạt động nào bạn muốn thử cùng một người bạn?
+22. Nếu tự chọn lịch cuối tuần lý tưởng thì ra sao?
+23. Bạn nghĩ buổi hẹn thú vị nên có gì?
+24. Bạn có thích khám phá địa điểm mới hay trở lại quán quen?
+25. Chủ đề nào khiến bạn có nhiều góc nhìn khác nhau?
+
+**Cách dùng:** Không hỏi như MC đang cầm 25 thẻ. Chọn vài chủ đề tự nhiên từ câu chuyện thực tế.
+
+## 12. Trò chuyện thú vị là cách nối câu trả lời, không phải số câu hỏi
+
+**Tình huống:**
+- Bạn: “Cuối tuần bạn thường làm gì?”
+- Người ấy: “Mình hay đọc sách.”
+- Bạn: “Thể loại nào làm bạn mê nhất?”
+- Người ấy: “Trinh thám.”
+- Bạn: “Mình từng đọc trinh thám đến 2 giờ sáng rồi tự nghi ngờ tiếng tủ lạnh kêu. Bạn thích kiểu phá án logic hay tâm lý tội phạm?”
+- Người ấy: “Phá án logic.”
+- Bạn: “Có cuốn nào cho người mới không? Mình muốn thử.”
+
+Điểm mạnh: câu chuyện **chuyển động theo sở thích thật**, bạn có chia sẻ cá nhân nhưng không độc chiếm.
+
+### Một đối thoại không nên
+
+- Bạn: “Nhà bạn mấy tầng?”
+- Người ấy: “Hả?”
+- Bạn: “Bạn nghĩ bao nhiêu tuổi kết hôn?”
+- Người ấy: “Mình mới gặp mà…”
+- Bạn: “Bạn muốn đặt tên con là gì?”
+→ Chương trình “Hẹn hò” đã bị nâng cấp trái phép thành “Quy hoạch dân số”.
+
+## 13. Từ ngôn ngữ cơ thể đến sự đồng ý
+
+Đừng dựa vào lời khuyên “chạm nhẹ tay để thử phản ứng”. Người khác có thể cười vì ngại, im lặng vì khó xử hoặc không thoải mái nhưng không muốn nói thẳng.
+
+**Nên:**
+- Giữ khoảng cách phù hợp.
+- Không tự tiện đụng chạm.
+- Khi muốn một hành động thân mật, hỏi rõ và thoải mái đón nhận câu trả lời.
+- Nếu họ muốn kết thúc buổi hẹn, không cố níu lại.
+
+**Không nên:**
+- Ép uống rượu để “tăng không khí”.
+- Chặn đường, giữ tay, đòi ôm/hôn vì “hôm nay mình trả tiền”.
+- Tự chụp ảnh rồi đăng công khai.
+
+## 14. Chuẩn bị an toàn cho cả hai
+
+- Ưu tiên địa điểm công cộng và phương tiện đi về chủ động.
+- Không gây áp lực uống đồ có cồn hoặc dùng bất kỳ chất gây ảnh hưởng khả năng quyết định.
+- Tôn trọng việc người ấy thông báo lịch trình cho người thân/bạn bè.
+- Không đòi biết địa chỉ nhà, công ty, vị trí thời gian thực.
+- Nếu buổi gặp không ổn, ai cũng có quyền rời đi.
+- Không chia sẻ thông tin cá nhân của người kia sau buổi hẹn nếu chưa có đồng ý.
+
+Sự an toàn không làm mất lãng mạn; nó giúp hai người có điều kiện thoải mái để xây dựng kết nối.
+
+## 15. 10 tình huống “hẹn đầu dở khóc dở cười”
+
+### 15.1. Bạn đến sớm, người ấy trễ
+
+Có thể nhắn “Mình tới rồi, đang ngồi bàn phía cửa sổ”. Nếu họ báo trễ, cân nhắc thời gian của bạn. Không cần giận dữ ngay; cũng không phải đợi vô hạn nếu không được thông báo.
+
+### 15.2. Bạn làm đổ cà phê
+
+Xin lỗi, xử lý, tiếp tục. Đừng định nghĩa toàn bộ con người mình bằng một ly nước.
+
+### 15.3. Đang nói, bạn bỗng quên chủ đề
+
+“Mình vừa quên mất ý mình định kể, não cần tải lại dữ liệu.” Cười nhẹ nếu phù hợp, rồi hỏi về chuyện vừa được nhắc.
+
+### 15.4. Người ấy không thích món bạn chọn
+
+“Không sao, tụi mình đổi món/đổi quán nhé?” Đừng coi sở thích khác nhau là lời xúc phạm.
+
+### 15.5. Người ấy nói nhiều về công việc
+
+Lắng nghe và hỏi thêm nếu thích. Nếu muốn chia sẻ điều khác: “Nghe thú vị. Mình tò mò ngoài giờ làm bạn thích làm gì?”
+
+### 15.6. Bạn run khi nói
+
+“Thú thật mình hơi hồi hộp vì mới gặp lần đầu.” Nói chân thành đôi khi giảm áp lực; đừng lặp đi lặp lại đến mức người ấy phải trấn an bạn liên tục.
+
+### 15.7. Điện thoại đổ chuông
+
+Nếu cần nghe việc gấp: “Xin lỗi, mình cần nghe cuộc gọi này vài phút.” Nếu không, tắt thông báo. Sự chú ý có giá trị hơn hiệu ứng sân khấu.
+
+### 15.8. Gặp người quen bất ngờ
+
+Giới thiệu bình thường nếu phù hợp, không tự ý giới thiệu người ấy là “bạn gái” khi chưa có quan hệ.
+
+### 15.9. Người ấy muốn về sớm
+
+“Tất nhiên, cảm ơn bạn đã dành thời gian. Về cẩn thận nhé.” Đừng tra hỏi lý do, đừng dùng “anh buồn lắm” để kéo dài.
+
+### 15.10. Hai người không hợp
+
+Bạn không cần cố tạo kết quả. Chỉ cần lịch sự, cảm ơn và nói rõ nếu cần về việc không tiếp tục.
+
+## 16. Sau buổi hẹn: ba kiểu tin nhắn phù hợp
+
+**Bạn muốn gặp lại:**  
+“Hôm nay mình vui lắm. Mình thích câu chuyện bạn kể về [chi tiết]. Nếu bạn cũng muốn, tuần sau tụi mình đi [hoạt động] nhé?”
+
+**Bạn chưa chắc:**  
+“Cảm ơn bạn vì buổi chiều hôm nay. Mình rất vui được gặp.” Sau đó dành thời gian đánh giá cảm xúc; tránh đưa ra lời hứa không thật.
+
+**Bạn không muốn tiếp tục:**  
+“Cảm ơn bạn đã dành thời gian. Mình thấy hai đứa chưa có sự kết nối mà mình đang tìm, nên mình không muốn tiếp tục hẹn hò. Chúc bạn mọi điều tốt.”
+
+Đừng ghost khi hai người đã hẹn hò đủ để có kỳ vọng rõ, trừ khi việc liên lạc khiến bạn không an toàn.
+
+## 17. Hẹn lần hai, lần ba: tăng hiểu biết, không tăng “độ khó”
+
+Bạn có thể chọn hoạt động cho phép nhìn thấy cách nhau hợp tác và giao tiếp: cùng nấu ăn theo lớp, đi triển lãm, board game, dạo phố công cộng. Đừng mặc định “hẹn lần ba phải có tiếp xúc cơ thể”.
+
+Các câu hỏi để hiểu nhau sâu hơn:
+- “Bạn thích được quan tâm theo cách nào?”
+- “Bạn thường làm gì khi gặp bất đồng?”
+- “Điều gì quan trọng với bạn ở một mối quan hệ?”
+- “Bạn có cần nhiều thời gian một mình không?”
+- “Bạn muốn tìm hiểu nhau theo nhịp nào?”
+
+Không phải bảng khảo sát bắt buộc. Chỉ hỏi khi bối cảnh, độ thân và sự sẵn lòng phù hợp.
+
+## 18. Phân biệt buổi hẹn vui và sự tương thích lâu dài
+
+Buổi hẹn vui là tín hiệu tích cực, nhưng chưa đủ cho một mối quan hệ bền.
+
+**Hãy quan sát dần:**
+- Có tôn trọng khi bất đồng?
+- Có giữ lời hứa và đúng hẹn tương đối?
+- Có lắng nghe nhu cầu riêng không?
+- Có cùng mong muốn về mức độ cam kết không?
+- Có tôn trọng giới hạn về sự riêng tư và cơ thể?
+- Hai người có thể không đồng ý mà vẫn nói chuyện bình tĩnh không?
+
+Bạn cũng có quyền nhận ra “người này tốt nhưng chưa phù hợp với mình”. Không cần gán ai là người xấu.
+
+## 19. Bộ bài tập tình huống
+
+**Bài 1 — Viết lời mời:** Mời người bạn quen qua CLB đi triển lãm, nêu thời gian và quyền từ chối.  
+**Mẫu:** “Mình thấy triển lãm ảnh Chủ nhật khá thú vị. Nếu bạn thích, tụi mình đi cùng khoảng 2 giờ chiều nhé? Không tiện cũng không sao.”
+
+**Bài 2 — Dự toán:** Bạn có ngân sách hạn chế, hãy đề xuất một buổi hẹn an toàn, không áp lực chi tiêu.
+
+**Bài 3 — Kết thúc:** Người ấy muốn đi về sớm. Viết một câu tôn trọng.
+
+**Bài 4 — Sửa câu:** “Anh mời nước rồi em cho anh ôm một cái nha.”  
+**Đáp:** Bỏ gắn thanh toán với tiếp xúc cơ thể. Sự đồng ý phải riêng biệt, tự nguyện.
+
+**Bài 5 — Tình huống:** Sau buổi gặp, bạn không thấy muốn tiếp tục. Viết tin nhắn 40–60 từ rõ ràng nhưng không phán xét.
+
+## 20. Checklist trước — trong — sau
+
+**Trước:**
+- [ ] Lời mời rõ, được đồng ý.
+- [ ] Địa điểm công cộng, dễ đến và về.
+- [ ] Ngân sách trong khả năng.
+- [ ] Trang phục thoải mái, gọn gàng.
+- [ ] Có phương án nếu lịch thay đổi.
+
+**Trong:**
+- [ ] Lắng nghe nhiều hơn chỉ chờ lượt nói.
+- [ ] Không biến thành buổi phỏng vấn.
+- [ ] Không gây áp lực thân mật.
+- [ ] Chú ý bối cảnh và quyền lựa chọn.
+- [ ] Không cố gây ấn tượng bằng chi phí.
+
+**Sau:**
+- [ ] Cảm ơn nếu phù hợp.
+- [ ] Nói rõ mong muốn, không hứa hẹn giả.
+- [ ] Tôn trọng mong muốn không gặp tiếp.
+
+> **Kết luận:** Một buổi hẹn đầu thành công không nhất thiết dẫn tới buổi hẹn thứ hai. Nó thành công khi hai người đã có cơ hội gặp gỡ **an toàn, tử tế và thật lòng**.

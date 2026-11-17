@@ -51,3 +51,19 @@ Chào mừng đến **BiKipTanGai**: kho kiến thức vui vẻ dành cho các a
 > **Lời cuối của chưởng môn:** Người phù hợp không phải người bạn thuyết phục bằng 999 tin nhắn, mà là người cũng muốn đi về phía bạn.
 
 *Dự án mang tính giải trí, học kỹ năng giao tiếp; nội dung áp dụng cho các mối quan hệ tự nguyện giữa người trưởng thành. Mỗi người là một cá thể riêng, đừng dùng định kiến giới tính để đoán suy nghĩ của họ.*
+
+
+## 📖 Phiên bản chuyên khảo mở rộng
+
+Toàn bộ **11 chương (00–10)** đã được nâng cấp với các mục chuyên khảo dài hơn, hội thoại phân nhánh, tình huống thường gặp, bảng so sánh, bài tập có đáp án và tiêu chí tự kiểm tra.
+
+### Cách học để không “tẩu hỏa nhập ma”
+
+1. **Đọc chương 00–02** để hiểu cách xây dựng bản thân và bắt đầu giao tiếp theo ngữ cảnh.
+2. **Thực hành chương 03–06** với người quen, nhóm bạn và các tình huống phù hợp; không spam hay ép buộc.
+3. **Học chương 07–09** về bày tỏ cảm xúc, nhận lời từ chối, giữ ranh giới và xây dựng quan hệ lành mạnh.
+4. **Làm chương 10** như bộ mô phỏng 32 tình huống; ghi sự kiện, cảm xúc, suy diễn và cách xử lý.
+
+**Tinh thần xuyên suốt:** hài hước nhưng không miệt thị; chủ động nhưng không ép; chân thành nhưng không làm người khác mắc nợ; độc thân vẫn sống tốt.
+
+> “Người xứng đáng để mình tìm hiểu cũng xứng đáng được nói không.”

@@ -1,5 +1,138 @@
 # 04. 🚦 Đọc tín hiệu: Đừng lấy một cái tim làm giấy đăng ký kết hôn
 
+## HỒI NĂM — GIỮA HAI BỜ SÔNG, ĐỪNG LẤY GỢN NƯỚC LÀM LỜI HỨA
+
+Trong sân thư quán có chiếc ao nhỏ. Mỗi độ xuân về, một cánh hoa rụng xuống là sóng gợn thành vòng. Lâm Dã thích ngồi đó, suy nghĩ những dấu hiệu mà mình cho là tình ý.
+
+Hôm ấy hắn đến hỏi Mặc tiên sinh:
+
+— Tống Nguyệt nhớ ngày sinh của con, chắc nàng có tình ý?
+
+— Có thể.
+
+— Nàng còn hỏi con đã ăn chưa.
+
+— Có thể.
+
+— Nàng gửi biểu tượng trái tim.
+
+— Có thể.
+
+— Vậy ba điều hợp lại chẳng phải thành “chắc chắn” sao?
+
+Mặc tiên sinh vốc một chút nước, đổ xuống ao.
+
+— Con thấy nước gợn không?
+
+— Có.
+
+— Vậy có chắc dưới ao là con cá chép không?
+
+— Không, thầy vừa đổ nước xuống.
+
+— Biết thế mà còn muốn suy từ ba gợn nước ra một con cá?
+
+Lâm Dã ngậm miệng. Tiên sinh nói tiếp:
+
+— Sự lịch sự, sự thân thiện, sự quan tâm và sự rung động đôi khi giống nhau ở bề mặt. Nếu muốn biết một người muốn gì, phải học nghe điều họ nói, xem họ tự nguyện làm gì, và khi cần thì hỏi cho rõ.
+
+### Một chữ “không” nặng hơn trăm lời đoán
+
+Cô nương nói: “Mình chỉ muốn làm bạn.”
+
+Thiếu niên tưởng: “Nhưng hôm qua nàng cười với mình nhiều.”
+
+Mặc tiên sinh hỏi:
+
+— Con tin một câu nàng nói rõ ràng, hay tin vào lời suy diễn chính con đặt trong miệng nàng?
+
+Từ đó, trong thư quán xuất hiện một bảng gỗ ghi:
+
+> **Lời nói rõ ràng là lời nói rõ ràng. Không được lấy phỏng đoán để xóa đi.**
+
+Bảng gỗ này không phong thần, không trảm yêu, chỉ cứu không ít người trẻ khỏi những đêm tự viết truyện tình cảm dài hơn sách sử.
+
+### Ba ngọn đèn dưới hiên
+
+**Đèn xanh — có sự chủ động hai chiều.** Hai người đều muốn gặp, đề xuất thời điểm phù hợp, hỏi han và lắng nghe. Đèn xanh chỉ nói cơ hội tìm hiểu đang thuận, chưa phải lời hứa yêu đương.
+
+**Đèn vàng — chưa rõ.** Hồi đáp ngắn, lịch bận, ít chủ động; có nhiều khả năng giải thích. Chớ thúc. Giữ khoảng cách, nhìn vào sự tương hỗ thực tế, hỏi rõ khi thích hợp.
+
+**Đèn đỏ — đã có ranh giới.** “Mình không muốn”, “Đừng liên lạc nữa”, chặn tài khoản, hoặc thể hiện rất rõ việc cần được yên. Hãy dừng. Người có học không tìm lối đi vòng qua tấm biển “đường cấm”.
+
+### Công án về cánh cửa
+
+Có một vị khách đứng trước nhà người quen. Cửa khép, khách gõ một lần, không ai đáp. Gõ hai lần, vẫn im. Người qua đường bảo: “Biết đâu nhà có người mà họ đang ngủ?” Vị khách bèn đặt một mảnh giấy hẹn việc cần thiết rồi ra về.
+
+Một kẻ khác thấy thế liền leo tường để chứng minh mình thật lòng muốn gặp. Chủ nhà phát hiện, sợ hãi gọi người.
+
+Mặc tiên sinh hỏi đồ đệ:
+
+— Hai kẻ đều muốn gặp, vì sao cách làm khác nhau?
+
+Lâm Dã đáp:
+
+— Người trước hiểu nhà người khác không phải sân nhà mình. Người sau chỉ nhớ mong muốn của bản thân.
+
+— Đúng. Trong chuyện tình cảm, nhiều cái sai chẳng phải từ ý muốn thích ai, mà từ việc xem ý muốn ấy lớn hơn sự an toàn và tự do của người kia.
+
+### Bàn về bốn vùng riêng
+
+**Thời gian.** Người ấy có quyền nghỉ, làm, học, ở với bạn bè, không nhắn liên tục.
+
+**Không gian.** Đừng theo chân, chặn đường, đứng chờ ngoài nhà, xuất hiện bất ngờ ở nơi riêng tư.
+
+**Dữ liệu.** Không dò mật khẩu, vị trí, tin nhắn, tài khoản phụ, không đem chuyện riêng ra đàm tiếu.
+
+**Thân thể.** Một cái ôm, cái nắm tay, nụ hôn đều cần sự đồng ý tự nguyện, phù hợp và có thể thay đổi. Đã đồng ý một điều không có nghĩa đồng ý tất cả.
+
+### Bốn đoạn đối thoại đúng nghĩa
+
+— Mình thấy nói chuyện với bạn rất vui. Bạn có muốn đi cà phê với mình không?  
+— Mình không muốn hẹn hò.  
+— Mình hiểu. Cảm ơn vì bạn đã nói rõ.
+
+— Chiều này cậu rảnh chứ?  
+— Mình bận thi. Tuần sau đi được không?  
+— Được, vậy khi nào gần tới ngày tụi mình chốt nhé.
+
+— Mình nắm tay bạn được không?  
+— Hôm nay mình chưa muốn.  
+— Ừ, không sao.
+
+— Mình cần chút thời gian riêng.  
+— Mình tôn trọng. Khi nào muốn nói chuyện thì cậu chủ động nhé.
+
+Câu chữ không hoa mỹ. Nhưng có những câu đơn giản giữ được lòng tin hơn một thiên trường phú.
+
+### Ngẫu hứng của người thầy già
+
+> *Gợn sóng chưa thành lời hẹn ước,*  
+> *Một câu từ chối đủ phân minh.*  
+> *Nếu thương xin giữ điều người muốn,*  
+> *Đừng lấy tương tư ép chữ tình.*
+
+### Chuyện người giữ bến
+
+Tại bến sông Thanh Liễu, có cô lái đò thường mỉm cười với khách. Một chàng trai ngỡ nàng đặc biệt dành tình ý cho mình, ngày nào cũng tới, hỏi cả nhà ở đâu, giờ nào về. Cô dần sợ và không muốn gặp. Lâm Dã nghe chuyện, tự trách người kia “không biết đọc tín hiệu”.
+
+Mặc tiên sinh nói:
+
+— Đừng chỉ trách hắn đọc sai; điều đáng trách hơn là khi nhận thấy nàng khó chịu, hắn vẫn xem sự khó chịu ấy nhẹ hơn nỗi mong muốn của mình.
+
+Từ đó thiếu niên hiểu: kỹ năng đọc tín hiệu cuối cùng không nhằm giúp **đoán trúng**, mà giúp **ứng xử đúng ngay cả khi chưa biết**.
+
+### Khảo hạch của chương
+
+Cho các dữ kiện: nàng thả tim story; nàng nói chỉ muốn làm bạn; nàng từ chối nhưng đề xuất ngày khác; nàng yêu cầu ngừng nhắn; nàng đồng ý đi uống trà. Hãy viết riêng phần **điều biết chắc**, **điều chưa biết**, **hành động đúng**. Đừng cho một dấu hiệu trung tính sức mạnh lớn hơn lời người ấy nói.
+
+**Thầy phê:** “Có những cửa không mở cho ta. Người biết lễ quay về, không phải vì yếu đuối, mà bởi vốn không có đạo lý nào cho phép phá cửa chỉ vì lòng mình đang vội.”
+
+---
+
+## PHẦN KHẢO GIẢI — KIẾN THỨC VÀ BÀI TẬP THỰC HÀNH
+
+
 > **Cảnh báo:** Không ai được cài sẵn API công khai trả về `isInLoveWithYou: true`.
 
 ## 1. Tín hiệu là dữ liệu, không phải phán quyết

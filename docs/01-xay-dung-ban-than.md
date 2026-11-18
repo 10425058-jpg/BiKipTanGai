@@ -1,5 +1,121 @@
 # 01. 🛠️ Luyện nội công: Nâng cấp bản thân trước khi nâng cấp trạng thái quan hệ
 
+## HỒI HAI — TU THÂN CHẲNG PHẢI ĐỂ CHÀO HÀNG BẢN THÂN
+
+Sáng hôm sau, Lâm Dã dậy thật sớm, tìm đến thư quán với bộ áo mới may. Áo xanh có thêu chim hạc, đai lưng đính ngọc, giày trắng vừa mới lấy ở tiệm. Đệ tử đứng dưới cây hạnh, xoay nửa vòng hỏi thầy:
+
+— Bộ này có phong thái của người khiến cô nương vừa gặp đã nhớ không?
+
+Mặc tiên sinh nhìn từ đầu xuống chân.
+
+— Có.
+
+Lâm Dã mừng rỡ.
+
+— Thật ạ?
+
+— Nhớ được. Nhớ rằng đệ tử của ta sáng nay không dám ngồi vì sợ nhăn áo.
+
+Quả nhiên thiếu niên từ lúc vào cửa vẫn đứng thẳng như cây cột. Tiên sinh chỉ ghế. Hắn nhìn chiếc ghế, nhìn vạt áo, cuối cùng ngồi rất chậm.
+
+— Người mặc áo để sống, chứ không sống để giữ áo, — thầy nói. — Ăn mặc sạch sẽ, phù hợp, vừa vặn; hít thở thoải mái; giữ đúng lời; biết chăm việc của mình. Cái đáng nhớ nhiều khi chẳng nằm trên lớp gấm vóc.
+
+Lâm Dã còn mang theo danh mục “nâng cấp bản thân”: học đàn trong ba ngày, cưỡi ngựa trong một tuần, đọc đủ năm mươi quyển sách trước mùa xuân. Mỗi việc đều có ghi chú “để nàng chú ý”.
+
+Tiên sinh đọc xong, lấy bút đỏ gạch bốn chữ ấy ở từng dòng.
+
+— Nếu không ai chú ý, con còn muốn làm không?
+
+Thiếu niên im lặng.
+
+— Học một khúc đàn vì yêu âm nhạc, mỗi ngày tập một chút, còn có ngày tiến bộ. Học để được một người nhìn thêm hai lần, nhìn không thấy thì nản, nhìn thấy rồi lại sợ mất. Người cứ chạy theo mắt kẻ khác, cuối cùng quên đường dưới chân mình.
+
+Chiều ấy, hai thầy trò cùng xuống chợ. Lâm Dã thấy một người bán bánh bao, tay thoăn thoắt gói bánh, vừa làm vừa cười cùng khách. Ông chủ tiệm may bên kia phố vẫn kiên nhẫn đo lại tay áo cho một bà cụ. Một cô gái trẻ cúi nhặt tập sách đánh rơi giúp em nhỏ, lại không hề chờ ai khen.
+
+Mặc tiên sinh hỏi:
+
+— Trong ba người đó, ai có sức hút?
+
+Lâm Dã ngập ngừng:
+
+— Đều có.
+
+— Vì sao?
+
+— Vì họ đang sống tử tế với công việc và người xung quanh.
+
+— Thế đấy. Sức hút không phải cái chuông con treo trước cửa lòng để mời người qua đường. Nó phần nào là tiếng động của một đời sống được chăm chút.
+
+### Luận về sáu món nội công
+
+**Một là dung mạo gọn gàng.** Người thích áo vải, kẻ chuộng áo gấm, chẳng có quy chuẩn khiến ai cũng rung động. Chỉ riêng chuyện áo sạch, hơi thở dễ chịu, tóc tai chỉnh tề thì ai cũng có thể học. Thêm một giọt nước hoa là làm đẹp, mười ba giọt là khai chiến với khứu giác cả con phố.
+
+**Hai là lời nói có trọng lượng.** Nói sẽ tới lúc ba giờ thì cố tới lúc ba giờ. Có việc bất ngờ thì báo. Chẳng phải chiêu hấp dẫn thần kỳ; chỉ là phẩm chất đáng tin.
+
+**Ba là một nghề hay sở thích.** Con người có việc hứng thú thường có chuyện để chia sẻ. Không cần thành danh cầm kỳ thi họa. Một người sửa được món đồ hỏng, chăm một chậu cây sống lâu, biết nấu bữa ăn ngon cũng có vẻ đẹp của sự dụng tâm.
+
+**Bốn là bạn bè và tình thân.** Người chỉ chờ một tin nhắn của crush mà quên cả cơm, cả bạn, cả giấc ngủ, đang gửi gắm quá nhiều vào một mối duyên chưa thành.
+
+**Năm là ranh giới.** Nhận việc vừa sức, cho đi vì muốn cho, không lấy hy sinh làm bằng chứng đòi yêu thương.
+
+**Sáu là lòng tự biết mình.** Có điểm mạnh, có điểm còn vụng, có thể thừa nhận cả hai. Khiêm tốn không phải cứ mở miệng nói mình vô dụng.
+
+### Vấn đáp nơi quán mì
+
+— Thầy, nếu con không có tài năng gì nổi bật?
+
+— Con có từng muốn học điều gì thật lòng?
+
+— Có. Con thích chụp ảnh.
+
+— Vậy bắt đầu từ đó.
+
+— Nhưng con chụp toàn bị nhòe.
+
+— Thế trước mắt học cách giữ yên tay.
+
+— Nếu nàng không thích ảnh?
+
+— Ảnh của con vẫn có thể đẹp hơn.
+
+Lâm Dã nhìn bát mì. Sợi mì cong cong, trong giây lát bỗng tựa một đạo lý hết sức giản dị: một món ngon không nhất thiết phải được đúng một người khen mới có giá trị.
+
+### Hai điều cần tránh
+
+**Giả vờ thâm trầm.** Có thiếu niên được khuyên “ít nói cho bí ẩn”, bèn ngồi im cả buổi hẹn. Người đối diện tưởng anh đang đau răng. Sự điềm tĩnh không đồng nghĩa không giao tiếp; người trầm vẫn có thể hỏi han chân thành.
+
+**Tự hạ thấp để xin trấn an.** Mỗi lần nghe lời khen lại đáp “Không đâu, mình vô dụng lắm”, mong người kia khen thêm. Đó là đặt gánh nặng chứng minh giá trị mình lên vai người khác. Chỉ cần mỉm cười, nói cảm ơn.
+
+### Thơ dưới gốc hạnh
+
+> *Áo đẹp chưa thay lòng vụng dại,*  
+> *Bàn tay chăm việc tự sinh hương.*  
+> *Chẳng cầu một mắt nhìn muôn bận,*  
+> *Cứ sống đời mình, vững một phương.*
+
+### Bảy ngày học làm người dễ chịu
+
+**Ngày một:** Dọn chỗ ngủ và bàn học. Không cần đăng story trước–sau để chờ ai thả tim.
+
+**Ngày hai:** Chỉnh trang phục, tóc, vệ sinh cá nhân theo khả năng, không chạy theo tiêu chuẩn xa xỉ.
+
+**Ngày ba:** Dành một giờ làm việc mình thích. Viết điều vừa học.
+
+**Ngày bốn:** Gặp một người bạn và hỏi về chuyện của họ, không biến cuộc gặp thành buổi than vãn về crush.
+
+**Ngày năm:** Tập nói “Hôm nay mình không tiện, mình có thể giúp vào ngày khác” khi thực sự bận.
+
+**Ngày sáu:** Ghi một chuyện nhỏ đáng kể trong tuần bằng ba câu: mở đầu, bất ngờ, kết.
+
+**Ngày bảy:** Tự hỏi: “Nếu người ấy không thấy, mình có vẫn muốn tiếp tục việc tốt này không?”
+
+**Lời phê của Mặc tiên sinh:** *“Tu thân vì muốn làm người tốt hơn, ấy là đường dài có nền móng. Tu thân chỉ để lọt vào mắt một người, đường ấy xây trên ánh nhìn, gió đổi hướng là nhà nghiêng.”*
+
+---
+
+## PHẦN KHẢO GIẢI — KIẾN THỨC VÀ BÀI TẬP THỰC HÀNH
+
+
 > **Trưởng lão phán:** “Không cần đẹp trai như nam chính phim Hàn, nhưng đánh răng là bản cập nhật bắt buộc.”
 
 ## 1. Vệ sinh & phong thái: bản build 1.0

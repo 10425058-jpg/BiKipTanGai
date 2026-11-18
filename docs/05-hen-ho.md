@@ -1,5 +1,117 @@
 # 05. ☕ Buổi hẹn đầu: Đừng biến ly cà phê thành buổi bảo vệ luận án cưới hỏi
 
+## HỒI SÁU — MỘT BÌNH TRÀ, HAI GHẾ NGỒI, ĐỦ CHO MỘT NGÀY ĐẸP
+
+Tống Nguyệt nhận lời mời uống trà. Ngày hẹn còn ba hôm, Lâm Dã đã đi quanh thành chọn quán. Quán thứ nhất sơn son thếp vàng, giá một ấm trà gần bằng học phí ba tháng. Quán thứ hai trên đỉnh núi, muốn đến phải leo chín trăm bậc đá. Quán thứ ba có đội nhạc công, đốt pháo và thả đèn trời.
+
+Mặc tiên sinh nghe xong, hỏi:
+
+— Con mời người ta uống trà hay tổ chức đại lễ phong vương?
+
+— Con sợ đơn sơ quá sẽ không đủ thành ý.
+
+— Thành ý là nhìn xem hai người có thoải mái không. Nếu nàng phải leo núi đến mệt lả rồi ngồi nghe dàn nhạc đánh suốt ba canh giờ, con nghĩ nàng có còn sức nói chuyện?
+
+Cuối cùng hai thầy trò chọn một quán nhỏ gần thư viện, sạch sẽ, sáng sủa, dễ tìm, giá phải chăng. Đường về đông người, xe qua lại thuận tiện.
+
+— Con không cần mời thứ quý nhất, — ông dặn. — Con cần mời một buổi gặp mà cả hai được thoải mái lựa chọn.
+
+### Bàn về chữ “hẹn”
+
+Lời hẹn có ba lớp: **mong muốn**, **sắp xếp**, **giữ lời**.
+
+Mong muốn không rõ khiến người ta bối rối. Sắp xếp thiếu chu đáo khiến buổi gặp mệt. Giữ lời không tốt khiến lòng tin hao.
+
+Hãy hỏi cụ thể: “Chiều thứ Bảy bạn có muốn uống cà phê khoảng một tiếng ở quán gần trường không?” Nếu người kia đồng ý, hai người cùng chốt. Nếu họ muốn quán khác, có thể thương lượng. Nếu họ từ chối, không ép.
+
+Người giữ lời không phải người cố kéo dài buổi hẹn dù người kia muốn về. Giữ lời hẹn còn là giữ lời tôn trọng.
+
+### Chuyện một bát bánh trôi
+
+Buổi hẹn tới. Lâm Dã đến trước giờ mười phút. Tống Nguyệt mặc áo màu lam, bước vào quán, nhìn quanh một vòng.
+
+— Quán dễ thương thật, — nàng nói.
+
+Lâm Dã định đáp một câu đã tập cả đêm: “Quán nào có nàng đều là thiên hạ đẹp nhất.” Nhưng nhớ lời thầy, hắn chỉ cười:
+
+— Mình thích vì quán yên, dễ trò chuyện. Cậu thích trà hay bánh?
+
+— Mình thích bánh trôi nước. Cậu ăn thử chưa?
+
+— Chưa. Mình có thể kể chuyện lần đầu thử làm bánh: đáng lẽ viên tròn, thành ra giống viên đá sau trận mưa.
+
+Nàng bật cười. Hắn hỏi nàng có từng làm bánh chưa. Câu chuyện rẽ sang bà ngoại, sang mùa đông, sang những món ăn kỷ niệm.
+
+Một lát, cả hai im lặng. Lâm Dã thoáng cuống. Hắn nhớ câu thầy dặn, định nói tiếp ngay, nhưng lại nhìn nắng rơi qua cửa sổ. Tống Nguyệt cũng nhìn. Khoảng lặng ấy không làm ai khó chịu.
+
+— Hôm nay trời đẹp thật, — nàng nói.
+
+— Ừ. May mà mình không chọn quán trên đỉnh núi.
+
+— Tại sao?
+
+— Vì có lẽ lúc đó chúng ta vẫn đang leo.
+
+Cả hai cùng cười.
+
+### Tiên sinh luận về khoảng lặng
+
+Nhiều người trẻ xem im lặng là tín hiệu thất bại. Nhưng giữa hai người thoải mái, có khi im lặng chỉ là đang ăn ngon, ngắm cảnh hoặc nghĩ đến điều vừa nghe.
+
+Đừng chuẩn bị hai trăm câu hỏi để lấp kín mọi hơi thở. Hãy chuẩn bị **sự chú ý** và vài câu chuyện thật. Người đối diện không đến hẹn để làm giám khảo cho một buổi thuyết trình kéo dài.
+
+### Những vấn đề cần làm rõ
+
+**Đi đâu?** Nơi công cộng, an toàn, phù hợp cả hai; đường đi và về chủ động.
+
+**Bao lâu?** Lần đầu có thể chọn buổi gặp ngắn, dễ kéo dài hoặc kết thúc nếu cả hai muốn.
+
+**Ai trả tiền?** Có thể mời, chia đôi hoặc luân phiên nếu cùng thoải mái. Trả tiền không tạo nghĩa vụ tình cảm hay tiếp xúc cơ thể.
+
+**Nếu lịch đổi?** Báo sớm, xin lỗi nếu gây bất tiện, đề xuất phương án; tôn trọng người kia nếu họ không tiện.
+
+**Nếu không hợp?** Cảm ơn và nói rõ mong muốn khi thích hợp. Đừng hứa buổi sau chỉ vì sợ làm người kia buồn.
+
+### Phép thử của người bán quạt
+
+Sau buổi hẹn, Lâm Dã mua một chiếc quạt giấy nhỏ định tặng Tống Nguyệt. Người bán hỏi:
+
+— Cậu mua vì nàng thích quạt, hay vì cậu mong nhận được điều gì sau món quà?
+
+Thiếu niên nghĩ một lúc.
+
+— Nàng nói thích vẽ hoa trên quạt. Tôi mua vì nhớ chuyện ấy, nhưng nếu nàng không muốn nhận, tôi cũng sẽ cầm về.
+
+Người bán cười, gói quạt vào giấy. Lâm Dã bỗng nhớ lời thầy: **điều mình muốn cho không tự biến thành điều người khác phải nhận**.
+
+### Sau cuộc hẹn
+
+Tống Nguyệt bảo hôm nay khá vui. Lâm Dã cũng thấy vui. Về đến nhà, hắn gửi một tin:
+
+> “Cảm ơn cậu vì buổi chiều hôm nay. Mình thích chuyện cậu kể về bà ngoại làm bánh. Nếu cậu cũng muốn, lần sau tụi mình thử hội sách nhé?”
+
+Nàng trả lời ngày hôm sau. Có lẽ đồng ý, có lẽ không. Nhưng Lâm Dã đã dám nói rõ mà không đặt gánh nặng lên người nhận.
+
+### Bốn câu thơ bên ấm trà
+
+> *Chẳng cần quán ngọc hay đèn bạc,*  
+> *Một chén trà trong đủ chuyện đời.*  
+> *Nếu hợp, còn duyên ngồi bữa khác,*  
+> *Không hợp, đường về vẫn sáng tươi.*
+
+### Buổi thực hành thứ bảy
+
+Hãy tự thiết kế một buổi hẹn: địa điểm công cộng, lộ trình, thời lượng, ngân sách vừa sức, ba chủ đề có thể chia sẻ, một cách kết thúc tự nhiên và một mẫu phản hồi khi người kia muốn về sớm.
+
+Đặt câu hỏi cuối cùng: “Nếu người ấy không muốn gặp lần thứ hai, buổi hẹn đầu của mình có còn là một cuộc gặp tử tế không?”
+
+**Lời cuối:** “Tình cảm không lấy sự sang trọng làm thước. Lấy sự sẵn lòng làm đầu, lấy chân thành làm giữa, lấy tôn trọng làm cuối.”
+
+---
+
+## PHẦN KHẢO GIẢI — KIẾN THỨC VÀ BÀI TẬP THỰC HÀNH
+
+
 > **Trạng thái:** Hai người đã đồng ý gặp. Chúc mừng, bạn vừa vượt màn “chỉ seen story”.
 
 ## 1. Lời mời đủ tốt cần gì?

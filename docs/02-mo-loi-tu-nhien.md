@@ -1,5 +1,160 @@
 # 02. 💬 Mở lời không sượng: Từ “Hi” đến “Ủa, nói chuyện vui ghê”
 
+## HỒI BA — MỘT CÂU CHÀO, HAI NGƯỜI TỰ TẠI
+
+Hôm thành Thanh Liễu mở hội sách, Lâm Dã tìm cơ hội thực hành. Hắn đứng trước một cô nương đang xem tập du ký, trong lòng đọc thuộc hai mươi câu mở lời đã chép từ sách cũ.
+
+Câu thứ nhất quá hoa mỹ, câu thứ hai lại giống hỏi giá lụa, câu thứ ba lấy trăng làm ví dụ, chẳng hiểu sao đến câu thứ tư đã nhắc chuyện trăm năm.
+
+Đứng do dự hết một khắc, hắn nghe phía sau có người nói:
+
+— Đệ tử, con định mở lời hay định viết văn bia?
+
+Mặc tiên sinh đứng cạnh tiệm bút mực, tay cầm bọc hạt dẻ rang.
+
+Lâm Dã kêu khổ:
+
+— Thưa thầy, con sợ nói sai.
+
+— Sợ nói sai thì nhìn xem hiện giờ có điều gì đáng nói. Đừng nhìn vào phần thưởng tưởng tượng ở cuối cuộc trò chuyện.
+
+Người thiếu niên hít nhẹ một hơi, đợi khi cô nương đặt quyển sách xuống và nhìn về phía kệ giới thiệu, mới lịch sự hỏi:
+
+— Xin lỗi, cô có từng đọc bộ du ký này chưa? Tôi định chọn một quyển cho chuyến đi, nhưng tên nào nghe cũng như cần chuẩn bị mười năm hành trang.
+
+Cô nương bật cười nhỏ.
+
+— Quyển kia dễ đọc hơn. Quyển này hơi nhiều địa danh.
+
+— Cảm ơn cô. Vậy tôi nên bắt đầu từ quyển kia.
+
+Chỉ ba câu. Hắn không hỏi tên, không xin liên lạc, cũng chẳng nhận được lời mời trăm năm. Nhưng khi quay lại, gương mặt hắn sáng rỡ.
+
+— Thầy, con nói được rồi.
+
+— Vì con đã thôi nghĩ mình phải đạt được điều gì sau câu nói đầu tiên.
+
+Một lúc sau cô nương bước sang gian bên, Lâm Dã vẫn đứng yên. Mặc tiên sinh gật đầu:
+
+— Làm tốt lắm.
+
+— Vì con biết nói chuyện?
+
+— Vì người ta đi rồi, con biết không đuổi theo.
+
+### Luận về “lễ” trong lời mở đầu
+
+Chữ lễ trong nhân tình không phải chỉ là chắp tay cúi đầu. Lễ có ba phần: **nhìn hoàn cảnh, nói vừa đủ, biết người kia có quyền rời đi**.
+
+Người bận việc mà bị giữ lại thì câu nói ngọt cũng hóa phiền. Người đang thong thả giao lưu, được hỏi một việc hợp cảnh, có thể đáp vui. Cái khó không ở vần điệu câu chữ, mà ở ánh nhìn của người nói đối với hoàn cảnh người nghe.
+
+Lời mở đầu cũng chẳng cần biến người kia thành đối tượng để chinh phục. Mỗi cuộc gặp có thể chỉ là một cuộc gặp, bởi không phải hành trình nào cũng phải đến một cửa tình duyên.
+
+### Một đề mục, ba cách nói
+
+**Trước bức tranh:**
+
+- *Quá đà:* “Nhìn bức tranh này anh thấy một đời của chúng ta.”
+- *Lạnh tanh:* “Tranh này ở đâu?”
+- *Hợp cảnh:* “Mình thích màu trời trong bức này, có cảm giác rất yên. Bạn có ấn tượng với tấm nào không?”
+
+**Cùng nhóm học:**
+
+- *Quá đà:* “Bạn giải được bài này, chắc chắn là định mệnh của mình.”
+- *Lạnh tanh:* “Cho đáp án.”
+- *Hợp cảnh:* “Bạn làm phần cuối ra kết quả khác mình. Nếu tiện, mình muốn hiểu bước bạn dùng ở đây.”
+
+**Trên mạng xã hội:**
+
+- *Quá đà:* “Mình thấy bài bạn từ ba năm trước, đã đọc hết tất cả ảnh cũ.”
+- *Chung chung:* “Hi.”
+- *Hợp cảnh:* “Bài bạn chia sẻ về [chủ đề công khai] khá hay. Mình tò mò về ý bạn nêu ở đoạn cuối.”
+
+Không phải mọi tin nhắn đều cần có câu hỏi. Hãy nói khi có lý do và để người nhận tự quyết định có tham gia hay không.
+
+### Công án: Câu hỏi thứ mười một
+
+Lâm Dã lần thứ hai thử chuyện trò với một người bạn cùng học. Hắn hỏi tên, hỏi ngành, hỏi quê, hỏi món ăn, hỏi phim, hỏi nhạc. Đến câu thứ mười, người bạn nhìn hắn:
+
+— Cậu đang ghi danh cho tớ tham gia khảo sát à?
+
+Về thư quán, hắn than:
+
+— Con đã dùng toàn câu hỏi mở như thầy dặn, sao vẫn gượng?
+
+Mặc tiên sinh lấy hai viên đá, đặt một viên trước mặt trò, một viên trước mặt mình.
+
+— Nếu chỉ ném đá sang người ta, người ta sẽ phải nhặt cả ngày. Trò chuyện là có đi có lại. Hỏi một điều, nghe cho kỹ, kể chút chuyện của mình. Đừng biến người khác thành người cung cấp dữ liệu.
+
+— Vậy con kể chuyện gì?
+
+— Chuyện thật. Chuyện nhỏ cũng được.
+
+Lâm Dã kể hôm qua sửa cái ghế xong mới phát hiện mình lắp chân dài chân ngắn. Mặc tiên sinh cười, bảo câu chuyện đó còn đáng nhớ hơn cả bộ 100 câu hỏi hắn chép.
+
+### Bốn đoạn hội thoại phân nhánh
+
+**Nhánh một — Người kia hào hứng**
+
+— Mình thích đi bảo tàng, nhất là khu cổ vật.
+
+— Mình từng đến một lần mà chỉ nhớ cái bình gốm bị nứt trông như cái bát nhà mình. Bạn thích món cổ vật nào nhất?
+
+Nếu họ đáp dài và hỏi lại, cứ nối câu chuyện.
+
+**Nhánh hai — Người kia trả lời ngắn**
+
+— Mình không biết nhiều về chủ đề này.
+
+— À, không sao. Cảm ơn bạn nhé.
+
+Không nhất thiết chuyển sang tám chủ đề để kéo dài.
+
+**Nhánh ba — Người kia đang vội**
+
+— Xin lỗi, mình phải vào lớp rồi.
+
+— Ừ, chúc bạn học tốt nhé.
+
+Không hỏi số điện thoại giữa lúc họ bước đi.
+
+**Nhánh bốn — Người kia chủ động giữ chuyện**
+
+— Bạn cũng chơi trò đó à? Hôm nào nhóm mình chơi, bạn muốn tham gia không?
+
+— Có chứ, nếu lịch phù hợp mình rất muốn thử. Bạn cứ gửi thông tin nhóm nhé.
+
+Không cần làm giá giả lạnh lùng.
+
+### Vài dòng cổ thi
+
+> *Lời đầu chẳng phải dây tơ buộc,*  
+> *Chỉ một câu chào giữa nắng mai.*  
+> *Nếu hợp thì thêm câu chuyện nhỏ,*  
+> *Không hợp, mây trời vẫn thảnh thơi.*
+
+### Tám điều phải nhớ lúc xuất sơn
+
+1. Bắt đầu bằng **bối cảnh thật**, không bịa tình huống.
+2. Không chặn đường hoặc làm phiền người đang bận.
+3. Hỏi điều người kia có thể trả lời, không đòi tin riêng.
+4. Nghe xong hãy đáp đúng điều được nói.
+5. Cho người đối thoại có chỗ để hỏi lại.
+6. Đừng công kích ngoại hình để “trêu cho có duyên”.
+7. Biết khép cuộc trò chuyện trước khi nó thành gượng ép.
+8. Không xem lời mở đầu là vé đặt cọc quan hệ.
+
+### Bài thi của cửa hội sách
+
+Hãy viết **ba câu mở lời**: một trong buổi thảo luận nhóm, một ở sự kiện bạn cùng tham gia, một qua bài viết công khai. Sau mỗi câu, viết thêm hai kết thúc: khi người ấy hứng thú và khi họ muốn dừng.
+
+*Chưởng môn phê:* “Người có học vấn trong giao tiếp không phải người nói câu nào cũng như thơ. Người ấy biết khi nào một câu hỏi là niềm vui, và khi nào một câu hỏi trở thành gánh nặng.”
+
+---
+
+## PHẦN KHẢO GIẢI — KIẾN THỨC VÀ BÀI TẬP THỰC HÀNH
+
+
 > **Kẻ địch đầu tiên:** Màn hình chat và dấu ba chấm không xuất hiện.
 
 ## 1. Chiêu thức C-O-M: Context — Open question — Mutuality

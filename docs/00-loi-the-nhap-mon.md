@@ -1,5 +1,106 @@
 # 00. 📿 Lời thề nhập môn — Đạo tán tỉnh không phải tà đạo
 
+## HỒI MỘT — VẤN TÂM TRƯỚC KHI VẤN TÌNH
+
+*Trích «Hồng Trần Tình Thư», một bộ du ký hư cấu viết riêng cho thư viện này.*
+
+Tại phía nam thành Thanh Liễu, có một ngôi thư quán nằm nép dưới chân núi. Trước cửa thư quán trồng một cây hạnh già. Hoa chưa chắc năm nào cũng nở đúng tiết, chỉ có lời đồn về vị tiên sinh giữ quán là chưa từng đứt đoạn: người đọc thông trăm cuốn sách, luận đủ nghìn chuyện đời, thế mà mỗi khi bị bà chủ hàng chè ngoài chợ hỏi giá một bát trà, vẫn lục túi bạc đến lúng túng.
+
+Người ta gọi ông là **Mặc tiên sinh**.
+
+Một buổi chiều, có thiếu niên tên **Lâm Dã** đến bái sư. Thiếu niên áo sạch, giày bụi, tay ôm một quyển sổ dày. Vừa vào cửa đã cúi đầu thật sâu.
+
+— Thưa tiên sinh, con muốn học bí pháp khiến một cô nương động lòng.
+
+Mặc tiên sinh cầm chén trà, hồi lâu mới hỏi:
+
+— Nếu cô nương ấy không động lòng thì sao?
+
+— Con sẽ học bí pháp cao hơn.
+
+— Nếu học cao hơn mà nàng vẫn không muốn?
+
+— Con… có lẽ học tiếp.
+
+Ông đặt chén xuống bàn.
+
+— Vậy con không tìm cách kết giao với một người, mà tìm cách thắng một người. Tình cảm chưa bén rễ đã có lòng hơn thua. Sách này có lật đến trang cuối cũng chỉ thấy một chữ *mệt*.
+
+Lâm Dã đỏ mặt, đáp rằng từ bé đến lớn nghe người ta nói muốn làm nên chuyện thì phải bền chí. Kẻ luyện kiếm phải kiên trì, người làm học vấn phải kiên trì, chẳng lẽ người thích ai cũng không được kiên trì?
+
+Mặc tiên sinh cười:
+
+— Kiên trì với việc mình làm là giữ lời hứa cùng bản thân. Kiên trì bắt người khác đổi ý là lấy lời hứa của mình trói vào cổ tay người ta. Hai chuyện đều dùng chữ “kiên trì”, nhưng đường đi khác nhau như bờ đông với bờ tây.
+
+Thiếu niên trầm ngâm hồi lâu. Cây hạnh ngoài sân đổ bóng lên cửa sổ. Một cơn gió lật trang sách trên bàn, để lộ dòng chữ tiên sinh viết từ năm cũ:
+
+> *Nhất niệm sinh thương, chưa thành nghĩa nợ;*  
+> *Lưỡng tâm đồng thuận, mới gọi hữu duyên.*  
+> *Hoa nở không vì người đứng đợi,*  
+> *Trăng trong chẳng chịu một nhà riêng.*
+
+Lâm Dã đọc xong, hỏi:
+
+— Vậy học tán tỉnh để làm gì?
+
+— Để biết mở miệng lúc nên mở miệng, biết lắng nghe khi người khác muốn nói, biết đứng gần mà không lấn sang phần đất của họ. Nếu may mắn, hai người cùng đi một quãng. Nếu không, ít nhất khi quay đầu, con vẫn là một người đàng hoàng.
+
+Thiếu niên lại hỏi:
+
+— Đàng hoàng có bảo đảm được yêu không?
+
+— Không.
+
+— Thế chẳng phải học mà không chắc thi đỗ?
+
+— Đúng. Bởi lẽ đây vốn không phải khoa cử.
+
+Mặc tiên sinh nói nhẹ tênh, còn Lâm Dã thì cảm thấy thiên hạ vừa bớt đi một cửa ải, lại thêm một đạo lý phải học cả đời.
+
+### Thiên bàn luận: Ba chữ không nên nhầm
+
+**Chữ “thích”.** Có người thích sắc áo trắng, giọng nói dịu, nét chữ ngay ngắn. Thích một dáng vẻ không sai, chỉ đừng tự nhận đã hiểu cả con người sau một lần gặp. Ánh đèn qua rèm đẹp không có nghĩa ta biết ngôi nhà bên trong.
+
+**Chữ “duyên”.** Duyên không phải thiên mệnh buộc ai phải đáp lại. Duyên là cơ hội để hai người gặp, nói, hiểu và tự chọn. Có gặp mà không cùng lòng, cũng không phải ai phụ ai.
+
+**Chữ “đức”.** Đức không mua được tình, lại càng không phải bảng điểm để tính nợ. Tử tế là khi không nhận được điều mình muốn, vẫn không tìm cách khiến người khác sợ hãi hoặc xấu hổ.
+
+### Ba cảnh thử tâm
+
+**Cảnh một — Một nụ cười.** Gặp nàng nơi thư viện, nàng mỉm cười đáp lễ. Lâm Dã vội cho rằng có thiên cơ. Mặc tiên sinh chỉ hỏi: “Nếu người gác cổng cũng cười với con, con có định cưới người gác cổng không?” Đệ tử đáp không. Ông gật đầu: “Vậy hãy trả nụ cười về đúng vị trí của nó.”
+
+**Cảnh hai — Một lời hẹn.** Hai người đồng ý uống trà chiều thứ Bảy. Thiếu niên muốn mua ngay vòng ngọc. Tiên sinh bảo: “Người ta đồng ý uống trà, con chỉ nên chuẩn bị trà. Chuyện mai sau để mai sau.”
+
+**Cảnh ba — Một lời từ chối.** Nàng nói chỉ muốn làm bạn. Thiếu niên hỏi có nên tìm lời thuyết phục cao siêu. Ông rót thêm trà: “Lời nàng đã rõ. Người biết đọc sách mà không biết đọc một chữ *không*, học vấn ấy hỏng từ căn bản.”
+
+### Công án: Trăng trên mặt hồ
+
+Một kẻ đứng bên hồ, thấy trăng đẹp bèn vốc nước muốn giữ trăng trong tay. Càng siết chặt, nước càng chảy mất. Người kia buông tay, nhìn lên trời, mới hiểu trăng chưa từng thuộc về lòng bàn tay.
+
+Tình cảm cũng vậy. Bạn có thể ngắm, có thể hỏi, có thể cùng người khác đi dưới trăng. Nhưng không thể lấy sức siết để biến điều tự nguyện thành sở hữu.
+
+### Tứ cú nhập môn — thơ mới
+
+> *Gặp nhau xin giữ lời ngay thẳng,*  
+> *Muốn gần nên hỏi một câu hiền.*  
+> *Người chẳng cùng đường, đừng níu bước,*  
+> *Một mình còn cả cõi nhân gian.*
+
+### Bài khảo hạch của thư quán
+
+1. Viết một lời mời cà phê có giờ, địa điểm, và quyền từ chối. Đọc to, xem bạn có nghe thấy sự ép buộc trong chính câu mình viết không.
+2. Kể lại một sự kiện bạn từng hiểu nhầm là “tín hiệu” và nêu hai cách giải thích khác.
+3. Viết một lời đáp cho câu “Mình không có cùng tình cảm”, không nhắc công lao đã bỏ ra.
+4. Kể ba mục tiêu cuộc sống mà bạn vẫn muốn làm dù không có người yêu.
+5. Giải thích bằng lời mình: vì sao bền chí trong học tập tốt, còn bám đuổi bất chấp từ chối lại không ổn?
+
+**Lời phê của Mặc tiên sinh:** *“Trước khi học tìm người đồng hành, phải học trở thành người có thể đi một mình. Người tự đứng được mới có thể nắm tay mà không níu kéo.”*
+
+---
+
+## PHẦN KHẢO GIẢI — KIẾN THỨC VÀ BÀI TẬP THỰC HÀNH
+
+
 > **Lời sư phụ:** “Học bí kíp để trở nên đáng mến, không phải để biến người khác thành chiến lợi phẩm.”
 
 ## 1. Tán tỉnh là gì?

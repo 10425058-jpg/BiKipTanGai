@@ -1,5 +1,147 @@
 # 03. 📱 Phi thư truyền tình: Nhắn tin không biến thành tổng đài CSKH
 
+## HỒI BỐN — MỘT BỨC THƯ KHÔNG PHẢI MỘT SỢI DÂY BUỘC NGƯỜI
+
+Có lần Lâm Dã ngồi trong thư quán từ sớm tới tối, mắt chăm chăm nhìn một tấm thẻ gỗ đặt trên bàn. Thẻ ấy là tín vật liên lạc của học viện, có thể nhận những dòng chữ ngắn từ bằng hữu phương xa.
+
+Mặc tiên sinh bước vào, thấy đồ đệ chẳng đọc được nửa trang sách.
+
+— Chờ thư?
+
+— Vâng.
+
+— Đã bao lâu?
+
+— Hai canh giờ.
+
+— Nội dung thư quan trọng lắm sao?
+
+— Con hỏi cô ấy thích trà đào hay trà vải.
+
+Mặc tiên sinh chợt hiểu vì sao thiên hạ có người chưa ra trận mà đã hao tổn mười thành công lực.
+
+— Con có biết điều đáng quý ở một bức thư là gì không?
+
+— Người gửi nhớ tới người nhận?
+
+— Đúng một phần. Còn là người nhận có thể mở thư khi muốn. Nếu thư vừa đi đã đòi hồi âm tức thì, nó chẳng phải thư nữa, mà giống một người đứng ngoài cửa, cứ nửa khắc lại gõ một lần.
+
+Lâm Dã cúi đầu. Hắn thú nhận đã viết thêm ba dòng: “Cô có bận không?”, “Tôi nói sai điều gì ư?”, “Hay là cô không thích trà?”.
+
+Mặc tiên sinh hỏi:
+
+— Nếu nàng chỉ chưa dùng điện thoại thì sao?
+
+— Con đã tự khiến mình khổ trước khi biết sự thật.
+
+— Nếu nàng thực sự không muốn trả lời?
+
+— Con cũng không thể gõ cửa thay nàng.
+
+Ông gật đầu. Rồi chỉ ra cửa sổ, nơi đám học trò nhỏ đang thả diều.
+
+— Con trông dây diều kia. Dây có tác dụng giữ liên lạc, không có nghĩa kéo mạnh là diều bay cao. Càng cuống cuồng giật, càng dễ đứt.
+
+### Khảo về chữ “hồi”
+
+Hồi âm là **một lựa chọn**, không phải khoản phải trả. Bạn gửi lời quan tâm vì muốn chia sẻ, hỏi han hoặc trao đổi việc cần thiết. Phản hồi nhanh hay chậm chưa tự nói lên tất cả.
+
+Có người giỏi nói chuyện trực tiếp nhưng hiếm dùng tin nhắn. Có người nhắn rất vui lại không mong hẹn hò. Có người từng quan tâm rồi đổi ý. Không cách nào thay thế việc hiểu **mức độ qua lại thực tế** và những lời nói rõ ràng.
+
+Người nhắn giỏi không được thưởng vì đã nhắn nhiều. Người đó biết nói **vừa đủ**, biết nghe qua câu chữ, biết dành chỗ cho đời sống của người khác.
+
+### Chuyện ba bức thư
+
+**Bức thư thứ nhất — Viết chỉ để được đáp**
+
+> “Em đang làm gì? Sao không trả lời? Anh làm em khó chịu à? Em có online mà?”
+
+Mặc tiên sinh lấy bút đỏ viết bên lề: “Bốn câu hỏi, không một câu nào cho người nhận thảnh thơi.”
+
+**Bức thư thứ hai — Viết vì có điều muốn kể**
+
+> “Hôm trước bạn nhắc đến tiệm bánh gần trường. Mình ghé thử rồi: bánh ngon thật, chỉ có mình đọc menu hết một khắc mới chọn được. Bạn thường gọi loại nào?”
+
+Ông phê: “Có câu chuyện chung, có điểm vui, có câu để đáp. Được. Nhưng đừng vì thế mà tính giờ trả lời.”
+
+**Bức thư thứ ba — Viết để nói rõ**
+
+> “Mình thấy nói chuyện với bạn rất vui. Nếu bạn cũng thích, chiều Chủ nhật tụi mình thử quán cà phê gần công viên nhé? Không tiện thì cứ nói thoải mái.”
+
+Ông phê: “Đã muốn hẹn thì nói hẹn. Chẳng cần vòng quanh mười bảy bức thư.”
+
+### Đối thoại dưới trời mưa
+
+Một chiều mưa, người bạn tên **Tống Nguyệt** của Lâm Dã nhắn:
+
+— Hôm nay mình vừa làm xong bài thuyết trình. Mệt quá.
+
+Lâm Dã viết: “Thế giờ cậu có thời gian gọi điện cho mình không?”
+
+Ngón tay dừng lại. Hắn nhớ lời thầy, sửa thành:
+
+— Vất vả thật. Cậu muốn nghỉ một chút hay kể xem buổi thuyết trình thế nào?
+
+Tống Nguyệt đáp:
+
+— Cho mình ăn cơm trước đã, lát nói.
+
+Lâm Dã trả lời:
+
+— Ừ, ăn ngon nhé.
+
+Rồi hắn đi rửa bát, đọc nốt quyển sách dở dang. Hóa ra một cuộc trò chuyện không làm hắn ngừng sống.
+
+### Đoạn thơ gửi mà không đòi đáp
+
+> *Gửi gió một lời qua cửa sổ,*  
+> *Đừng sai mây trắng phải hồi âm.*  
+> *Có tin thì đọc bằng lòng thẳng,*  
+> *Vắng chữ, còn nguyên việc tháng năm.*
+
+### Đạo lý về sự nhầm lẫn
+
+Người ta thường hỏi “Nên đợi bao nhiêu phút rồi trả lời để gây ấn tượng?” Câu hỏi này giả định đối phương chỉ cần nhìn nhịp phản hồi là sinh thiện cảm. Nhưng nhịp tự nhiên phụ thuộc lịch sống, sự hứng thú, mối quan hệ và thói quen khác nhau.
+
+Nếu có việc cần làm, hãy làm. Nếu rảnh và muốn đáp, hãy đáp. Đừng cố tình biến im lặng thành thuốc thử, cũng đừng đòi người kia phá lịch của họ.
+
+### Thực chiến của Lâm Dã
+
+**Tình huống một:** Tống Nguyệt gửi ảnh một bát mì.  
+**Nói:** “Nhìn ngon thật. Quán này cậu mới thử à?”  
+**Không nói:** “Chắc cậu đang muốn ăn cùng mình nên mới gửi.”
+
+**Tình huống hai:** Nàng trả lời “haha”.  
+**Làm:** Có thể để câu chuyện dừng. Chữ “haha” không phải cánh cổng thần bí cần giải mã.
+
+**Tình huống ba:** Nàng không muốn nhắn tiếp.  
+**Làm:** Dừng. Không đổi tài khoản, không lấy bạn chung làm bồ câu đưa thư.
+
+**Tình huống bốn:** Nàng chủ động hỏi thăm.  
+**Làm:** Đáp tự nhiên; không giả vờ lạnh nhạt để nâng giá bản thân.
+
+**Tình huống năm:** Bạn muốn nói chuyện trực tiếp hơn.  
+**Làm:** Đề nghị rõ ràng, một lần lịch sự, rồi tôn trọng lựa chọn.
+
+### Tiểu kết nơi thềm đá
+
+Mặc tiên sinh hỏi:
+
+— Bây giờ con còn nhìn tấm thẻ liên lạc mỗi mười hơi thở không?
+
+— Thưa thầy, còn đôi lúc.
+
+— Thế cũng chẳng sao. Tâm nóng không phải tội. Nhưng đừng để bàn tay làm theo mọi cơn nóng của tâm.
+
+Lâm Dã cười, lại bị thầy sai quét sân. Quét xong hắn nhận được một tin trả lời về trà vải. Tin rất bình thường, hắn cũng vui rất bình thường. Người ta gọi đó là tiến bộ.
+
+**Đề ôn tập:** Viết ba tin nhắn cho ba mục đích khác nhau: hỏi việc, nối chuyện và mời hẹn. Với mỗi tin, viết thêm một cách ứng xử nếu người ấy không đáp. Câu “gửi thêm mười lần” không được tính điểm.
+
+---
+
+## PHẦN KHẢO GIẢI — KIẾN THỨC VÀ BÀI TẬP THỰC HÀNH
+
+
 > **Thông báo hệ thống:** “Seen” là trạng thái hiển thị, không phải kết quả xét nghiệm tình cảm.
 
 ## 1. Nhắn để trò chuyện, không để đếm điểm

@@ -1,5 +1,119 @@
 # 09. 🌱 Khi đã có đôi: Nhiệm vụ chính giờ mới bắt đầu
 
+## HỒI MƯỜI — TÌNH LÀ HAI NGƯỜI CÙNG GIỮ MỘT NGỌN ĐÈN
+
+Cuối năm, Thanh Liễu trở lạnh. Lâm Dã đi đưa sách cho một người bạn cũ tên **Phan Mộc**, thợ mộc trẻ sống ở bờ đông. Phan Mộc đã thành thân với **Diệp Nghi**, người dạy học trong làng. Hai người vốn được khen là hợp nhau, vậy mà hôm ấy vừa đến cửa Lâm Dã đã nghe tiếng tranh luận.
+
+— Chàng hẹn về sớm, sao không báo là phải ở lại xưởng? — Diệp Nghi hỏi.
+
+— Ta làm việc vì cả nhà này chứ còn vì ai! — Phan Mộc đáp.
+
+Lâm Dã đứng ngoài ngõ, định quay đi. Mặc tiên sinh đi cùng bảo:
+
+— Đừng nghe lén chuyện nhà người khác. Để sách đó rồi về.
+
+Chiều hôm sau, Phan Mộc tự đến thư quán hỏi cách sửa một cuộc cãi vã. Mặc tiên sinh không giảng một bài dài về yêu thương, chỉ hỏi:
+
+— Khi nàng hỏi vì sao không báo, con đã nghe ra điều nàng muốn gì?
+
+— Nàng trách con.
+
+— Hay nàng cần biết khi nào con về để khỏi lo?
+
+Phan Mộc suy nghĩ hồi lâu.
+
+— Có lẽ cả hai.
+
+— Vậy con đã đáp điều nàng hỏi chưa?
+
+— Chưa. Con lại nói mình làm việc vất vả.
+
+Ông gật đầu:
+
+— Mỗi người đều mang một nỗi nhọc đến bàn, nhưng nếu chỉ đặt lên bàn rồi chỉ vào phần mình, chẳng ai còn tay để đỡ phần của người kia.
+
+Sáng hôm sau, Phan Mộc xin lỗi vợ vì đã không báo trước. Diệp Nghi cũng nói mình sợ có chuyện xảy ra nên đã trách trong lúc nóng. Họ thống nhất: khi kế hoạch thay đổi, người biết trước sẽ báo một tin ngắn.
+
+Một cuộc xung đột được xử lý chẳng cần cao nhân khai thiên, chỉ cần hai người chịu nghe đúng điều đang được nói.
+
+### Đạo lý của “đồng hành”
+
+Có người tưởng yêu là nắm thật chặt. Nhưng người đồng hành không phải hành lý, càng không phải chiến lợi phẩm treo trước cửa nhà. Hai người cùng đường vẫn có mắt nhìn khác nhau, bước chân dài ngắn khác nhau, sở thích chưa chắc giống nhau.
+
+Cùng đi tốt không có nghĩa lúc nào cũng đi sát; đôi khi người này cần dừng lại, người kia cần rẽ một đoạn làm việc riêng. Điều quan trọng là **cả hai biết rõ điều đã hứa với nhau và còn muốn giữ lời hứa ấy**.
+
+### Bốn câu chuyện về một mái nhà
+
+**Chuyện thứ nhất — Chiếc điện thoại.** Phan Mộc nghe người quen xúi nên xin mật khẩu của vợ để “chứng minh lòng tin”. Diệp Nghi từ chối. Mặc tiên sinh hỏi: “Nếu cửa nhà lúc nào cũng bị kiểm tra, còn được gọi là nhà yên ổn không?” Tin tưởng được xây bằng hành vi nhất quán, không phải lấy quyền riêng tư làm vật thế chấp.
+
+**Chuyện thứ hai — Bữa cơm muộn.** Một người thích ăn cùng giờ, người kia làm ca thất thường. Họ không giận dỗi bằng cách im lặng nhiều ngày, mà chọn những tối có thể ăn chung, những tối khác báo trước. Yêu không làm đồng hồ chạy cùng một nhịp.
+
+**Chuyện thứ ba — Người bạn cũ.** Diệp Nghi vẫn có bạn bè riêng. Phan Mộc đôi lúc bất an, nhưng không cấm đoán. Hai người nói về kỳ vọng và cam kết của mình, tôn trọng bạn hữu lành mạnh của nhau. Cảm giác ghen có thể xuất hiện; hành vi kiểm soát không vì thế mà trở nên đúng.
+
+**Chuyện thứ tư — Một món quà.** Phan Mộc muốn mua món đắt tiền để xin lỗi. Diệp Nghi chỉ muốn một buổi chiều được nghe giải thích tử tế. Hắn nhận ra có những vấn đề không giải bằng bạc, mà bằng lời nói đúng, hành động sửa sai và thời gian.
+
+### Lời thầy về hai chữ “xin lỗi”
+
+Mặc tiên sinh viết lên bảng:
+
+> *Lỗi ở việc làm, đừng đem lòng tốt che đậy.*  
+> *Lời xin lỗi cần nói cho đúng, việc sửa sai cần làm cho lâu.*
+
+Hãy nói: “Hôm qua mình đã quên báo thay đổi lịch, khiến bạn phải chờ và lo. Mình xin lỗi. Lần sau mình sẽ chủ động báo sớm.”
+
+Đừng nói: “Anh làm vậy vì yêu em, em phải hiểu.” Một tấm lòng tốt không khiến hậu quả biến mất; lời nhận lỗi cũng không có tác dụng nếu ngày mai lặp lại y nguyên.
+
+### Bàn về ba mối ràng buộc chính đáng
+
+**Thỏa thuận.** Hai người có thể thống nhất về thời gian, sự chung thủy, tiền bạc, kế hoạch hẹn hò. Khi thỏa thuận không còn phù hợp, có thể trao đổi để đổi; đừng tự ý thay rồi giấu.
+
+**Ranh giới.** Người yêu vẫn có quyền từ chối tiếp xúc cơ thể, từ chối đưa mật khẩu, từ chối kể chuyện riêng hoặc xin thời gian ở một mình.
+
+**Trách nhiệm.** Không dùng im lặng, tiền bạc, đe dọa hay nỗi sợ chia tay để điều khiển. Nếu mối quan hệ có hành vi đe dọa, cưỡng ép hoặc bạo lực, ưu tiên an toàn và tìm hỗ trợ phù hợp, không xem đó là “thử thách tình yêu”.
+
+### Chuyện cây đèn dầu
+
+Một đêm mất điện, Phan Mộc và Diệp Nghi thắp một ngọn đèn dầu nhỏ. Diệp Nghi đọc sách, Phan Mộc mài lại một chiếc đục. Họ không nói nhiều. Lúc gió lùa qua cửa, nàng che đèn, hắn đóng cửa sổ.
+
+Mặc tiên sinh nghe Lâm Dã kể lại, bảo:
+
+— Tình yêu nếu có lúc trông như ngọn đèn ấy thì cũng tốt. Người này không phải lúc nào cũng phải hát, người kia không phải lúc nào cũng phải cười. Chỉ cần cùng biết ngọn đèn cần được giữ sáng và không ai xem công việc đó là trách nhiệm riêng của đối phương.
+
+— Nếu một người không muốn giữ nữa?
+
+— Hãy hỏi rõ. Có thể sửa nếu hai người đều muốn. Nếu chỉ còn một người giữ mãi, đến khi cháy tay cũng không thành phép màu.
+
+### Một bài thơ mới
+
+> *Hai người chung một ngọn đèn,*  
+> *Chẳng ai là bóng, chẳng bên nào trời.*  
+> *Gió về cùng khép cánh phơi,*  
+> *Đèn còn hay tắt, cùng lời rõ ràng.*
+
+### Sáu bài tập cho người đang yêu
+
+1. Nói một điều bạn trân trọng ở người kia bằng ví dụ cụ thể.
+2. Viết một lời nhắc lịch không có chữ “lúc nào cũng”.
+3. Viết một cách đặt ranh giới riêng tư mà không xúc phạm.
+4. Thử nói “Bạn muốn mình lắng nghe hay muốn cùng tìm giải pháp?”
+5. Lập kế hoạch hẹn hò tiết kiệm, phù hợp thời gian và sức khỏe của cả hai.
+6. Nêu những dấu hiệu khiến bạn cần hỗ trợ ngoài mối quan hệ: kiểm soát, đe dọa, cưỡng ép, cô lập hoặc bạo lực.
+
+### Cuối hồi
+
+Lâm Dã trước đó tưởng tình yêu là trận chiến để giành thắng lợi. Nay nhìn đôi vợ chồng trẻ, hắn thấy yêu còn gồm những việc rất tầm thường: nhớ báo giờ về, không đọc trộm điện thoại, hỏi khi người kia buồn, nói lời xin lỗi đúng lúc.
+
+Mặc tiên sinh kết luận:
+
+— Kẻ giỏi thắng lòng người chưa chắc giỏi giữ một mối quan hệ. Người giỏi đồng hành không phải người không bao giờ sai, mà là người biết sửa và không xem tình cảm như giấy phép làm sai.
+
+*Học yêu, rốt cuộc là học cách sống tử tế hơn khi ở cạnh người khác — và cũng giữ được mình.*
+
+---
+
+## PHẦN KHẢO GIẢI — KIẾN THỨC VÀ BÀI TẬP THỰC HÀNH
+
+
 > “Có người yêu rồi nên xóa game?” — Không, bạn vừa mở bản cập nhật co-op.
 
 ## 1. Cùng một đội, không phải hai phe địch

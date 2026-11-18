@@ -1,5 +1,220 @@
 # 10. 🕹️ Phòng mô phỏng: 12 màn thực chiến
 
+## HỒI MƯỜI MỘT — ĐẠI KHẢO TÌNH THƯ VIỆN: MỘT TRĂM KIẾM KHÔNG BẰNG MỘT CHỮ RÕ
+
+Mùa xuân năm sau, Mặc tiên sinh mở cuộc khảo hạch tại thư quán. Không có võ đài, không có phù chú, càng không có giải thưởng “thần tốc thoát ế trong bảy ngày”. Trên bàn chỉ đặt một ấm trà, vài mảnh giấy và chiếc gương cũ.
+
+Người đến thi có Lâm Dã, Phan Mộc, vài sinh viên trong thành, cả ông chủ quán mì. Ai cũng hỏi giải thưởng là gì.
+
+Mặc tiên sinh đáp:
+
+— Người vượt qua kỳ khảo hạch sẽ nhận một điều rất hiếm: bớt tự làm khổ mình và bớt làm phiền người khác.
+
+Đám học trò nghe xong đồng loạt thở dài. Ông chủ quán mì bảo: “Phần thưởng này không thể treo tường khoe khách được.” Tiên sinh bèn viết thêm: “Được quyền gọi mình là người đang học cách trưởng thành.”
+
+### Cửa thứ nhất — Luận sự thực
+
+Mặc tiên sinh kể: “Một người con gái thả tim bài đăng của anh học trò. Hắn về nhà viết giấy đính hôn.”
+
+— Sai ở đâu? — ông hỏi.
+
+Lâm Dã đáp:
+
+— Từ một phản hồi nhỏ đã đoán thành ý định lớn, lại không hỏi người ấy muốn gì.
+
+— Nếu nàng không có tình ý?
+
+— Hắn tự buồn vì điều nàng chưa từng hứa.
+
+— Nếu nàng thật sự có tình ý?
+
+— Hắn vẫn nên giao tiếp rõ ràng, không tự đặt lời vào miệng nàng.
+
+Mặc tiên sinh gật đầu. Đám học trò khác ghi lại: **Sự thật là sự thật; hy vọng là hy vọng. Đừng tráo tên hai thứ.**
+
+### Cửa thứ hai — Luận lời nói
+
+Ông đưa ba tờ giấy:
+
+**Tờ A:** “Em không rep anh là không tôn trọng anh.”  
+**Tờ B:** “Hôm nay bạn bận phải không? Khi nào rảnh mình nói tiếp nhé.”  
+**Tờ C:** “Nếu bạn đã nói không muốn liên lạc, mình sẽ tôn trọng và dừng.”
+
+Các học trò chọn B cho lúc người kia bận và chưa có lời từ chối; chọn C khi ranh giới đã rõ. Tờ A bị ông chủ quán mì gấp thành máy bay giấy, rồi bị thầy nhắc: “Giấy còn dùng để ghi bài, đừng lãng phí.”
+
+### Cửa thứ ba — Luận việc cho đi
+
+Phan Mộc hỏi:
+
+— Nếu ta tặng một món quà quý cho người thương, chẳng lẽ không mong họ vui?
+
+— Mong người khác vui là tốt. Nhưng nếu người ta không nhận, con có giận không?
+
+— Có thể hơi tiếc.
+
+— Tiếc được. Nhưng nếu nghĩ họ *nợ* con một câu đồng ý thì con đã biến quà thành món hàng đặt giá bằng tình cảm.
+
+Một cô gái ngồi cuối bàn nói:
+
+— Người được tặng đôi khi cũng ngại vì món quà quá đắt.
+
+Mặc tiên sinh gật đầu:
+
+— Vậy người tặng cũng phải nghe xem người nhận có thoải mái không. Có khi một cái bánh nhỏ được chọn đúng sở thích còn tốt hơn một món đắt tiền trở thành gánh nặng.
+
+### Cửa thứ tư — Luận dũng khí
+
+Ông hỏi:
+
+— Dám tỏ tình có phải dũng cảm không?
+
+— Có, — nhiều người đáp.
+
+— Dám nghe từ chối rồi thôi, có phải dũng cảm không?
+
+— Có.
+
+— Dám thú nhận câu đùa của mình vô duyên rồi xin lỗi?
+
+— Cũng có.
+
+— Dám nói “Mình không thoải mái, xin bạn dừng”?
+
+— Vẫn có.
+
+Mặc tiên sinh cười:
+
+— Vậy đừng đem dũng khí nhốt trong một cảnh “nam tử phải theo đuổi tới cùng”. Có người dũng cảm khi tiến, có người dũng cảm khi lùi, có người dũng cảm khi nói thật. Tất cả đều cần học.
+
+### Cửa thứ năm — Bàn về kết quả
+
+Một thiếu niên khác hỏi:
+
+— Nếu ta học hết bí kíp mà vẫn độc thân thì có phải kỳ khảo hạch thất bại?
+
+Mặc tiên sinh đưa gương cho cậu.
+
+— Soi xem.
+
+— Thưa thầy, vẫn là con.
+
+— Trước đây con có sợ bắt chuyện?
+
+— Có.
+
+— Nay đã dám chào hỏi một cách tự nhiên?
+
+— Có.
+
+— Trước đây con có sợ chữ “không” đến mức phải nài nỉ?
+
+— Có.
+
+— Nay con có biết tôn trọng?
+
+— Biết.
+
+— Vậy con đã học được điều đáng học. Có người yêu hay không còn cần một người khác cùng muốn. Chẳng ai một mình thi hộ phần lòng của người ấy được.
+
+### Câu chuyện Lâm Dã kể trước ngày tốt nghiệp
+
+Hắn kể từ buổi hội sách, tấm thẻ liên lạc, quán bánh, đêm mưa bày tỏ và những ngày sau đó.
+
+— Con từng nghĩ thứ con thiếu là một câu nói đủ hay để Tống Nguyệt đáp lại. Nay con nghĩ thứ con cần học là biết sống tốt dù đáp án không giống mong ước.
+
+Mặc tiên sinh hỏi:
+
+— Vậy con còn thích nàng không?
+
+Lâm Dã im lặng một lát:
+
+— Có lẽ con vẫn quý nàng. Nhưng con không còn dùng sự quý mến ấy để yêu cầu nàng bước về phía mình.
+
+— Tốt.
+
+— Thầy có câu thơ nào cho con chép lên bìa sách không?
+
+— Có.
+
+Ông lấy bút. Bên ngoài cây hạnh lại nở, bóng hoa rơi lên giấy.
+
+> *Chuyện đời không phải trang văn định sẵn,*  
+> *Người đến người đi chẳng thuộc tay mình.*  
+> *Có duyên thì giữ lòng ngay trước gió,*  
+> *Hết duyên còn giữ một chữ chân tình.*
+
+### Bản khảo hạch mười câu
+
+**1.** Người ấy trả lời chậm. Bạn có được quyền kiểm tra họ đang nói với ai?  
+*Không. Tốc độ hồi đáp không tạo quyền kiểm soát.*
+
+**2.** Bạn không có sở thích thật, có nên bịa một sở thích để thu hút?  
+*Không. Hãy tìm điều bạn thật sự muốn thử.*
+
+**3.** Bạn thích ai đó nhưng người ấy nói chỉ làm bạn.  
+*Tôn trọng; có thể lấy khoảng cách cho cảm xúc ổn định.*
+
+**4.** Một buổi hẹn đầu có thể dừng sớm không?  
+*Có, bất cứ khi nào người tham gia không muốn tiếp tục.*
+
+**5.** Đã đồng ý nắm tay có tự động đồng ý ôm hoặc hôn không?  
+*Không. Đồng ý cần phù hợp từng hành động và có thể rút lại.*
+
+**6.** Người ấy có bạn khác giới; bạn được cấm họ giao tiếp không?  
+*Không. Hãy bàn về cam kết và ranh giới của mối quan hệ, không kiểm soát.*
+
+**7.** Bạn đùa sai và bị phản ứng.  
+*Xin lỗi, nhận trách nhiệm, sửa.*
+
+**8.** Bạn chủ động mời hẹn nhưng người ấy từ chối.  
+*Cảm ơn và dừng, không mặc cả.*
+
+**9.** Bạn đã đầu tư nhiều thời gian, người ấy có nghĩa vụ đáp lại không?  
+*Không. Quan hệ không phải công nợ.*
+
+**10.** Bạn vẫn độc thân sau một năm trưởng thành. Bạn có thất bại không?  
+*Không. Khả năng yêu thương và giá trị con người không đo bằng trạng thái quan hệ.*
+
+### Đại kết — Không có tuyệt kỹ bảo đảm thắng
+
+Người tu trong thư quán lúc đầu mong nắm một thứ kiếm pháp có thể phá hết rào cản, làm trái tim bất kỳ ai rung động. Đến cuối cùng, những gì họ mang theo lại giản dị: biết chăm sóc bản thân, biết nói chuyện, biết mời người khác một cách rõ ràng, biết lắng nghe, biết tôn trọng ranh giới, biết rời đi khi không cùng đường.
+
+Có người thấy như vậy quá ít. Mặc tiên sinh đáp:
+
+— Ta chưa từng hứa với các ngươi quyền nắm giữ một trái tim. Ta chỉ dạy cách đừng đánh mất trái tim của mình, và đừng lấy trái tim mình làm cớ gây khó cho người khác.
+
+Ông chủ quán mì chen vào:
+
+— Vậy ai trả tiền bữa trưa sau lễ tốt nghiệp?
+
+Tiên sinh đáp rất mau:
+
+— Người đề nghị ăn.
+
+Cả thư quán cười vang. Người đề nghị ăn chính là ông chủ quán mì. Thế là đại lễ kết thúc bằng một cuộc tranh luận về phép chia tiền, có lẽ còn sôi nổi hơn buổi khảo hạch tình trường.
+
+### Bài thơ khóa sách
+
+> *Đừng hỏi nhân gian ai phải đợi,*  
+> *Hãy hỏi lòng mình đã thẳng chưa.*  
+> *Một lời tử tế khi vừa gặp,*  
+> *Một bước ung dung lúc biệt từ.*  
+> *Người thương chẳng phải điều sở hữu,*  
+> *Duyên hợp hai người mới nên thơ.*  
+> *Học hết tình thư không hóa thánh,*  
+> *Chỉ mong bớt phụ một lời xưa.*
+
+---
+
+**Người đọc có thể trở lại [32 tình huống thực chiến](#-phụ-bản-thực-chiến--20-màn-nâng-cao) ở phần dưới, chọn một tình huống rồi trả lời bằng sáu bước: sự kiện, cảm xúc, suy diễn, ranh giới, lựa chọn, bài học.**
+
+**Hết chính truyện Hồng Trần Tình Thư — Mở trang thực hành phía sau để tiếp tục tu luyện.**
+
+---
+
+## PHẦN KHẢO GIẢI — KIẾN THỨC VÀ BÀI TẬP THỰC HÀNH
+
+
 > Quy tắc mô phỏng: Không có đáp án nào bảo đảm người khác sẽ thích bạn. Đáp án chỉ giúp bạn cư xử tốt hơn.
 
 ## Màn 01 — Crush thả ❤️ story

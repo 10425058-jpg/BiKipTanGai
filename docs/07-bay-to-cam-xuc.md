@@ -1,5 +1,125 @@
 # 07. 💌 Tỏ lòng: Nói thật không cần dàn nhạc giao hưởng
 
+## HỒI TÁM — LÁ THƯ DƯỚI MƯA: TÂM CÓ THỂ TỎ, DUYÊN KHÔNG THỂ CẦU
+
+Cuối thu, mây trôi thấp qua núi Thanh Liễu. Lá hạnh trước thư quán nhuộm vàng. Lâm Dã đem tới một bức thư gấp làm bốn, giấy dày, mực còn mới.
+
+Mặc tiên sinh nhìn tờ thư:
+
+— Định gửi cho Tống Nguyệt?
+
+— Vâng. Con đã viết một đêm.
+
+— Bao nhiêu chữ?
+
+— Ba nghìn.
+
+Thầy trầm ngâm.
+
+— Ba nghìn chữ? Con muốn tỏ tình hay xin mở một khoa mới ở thư viện?
+
+Lâm Dã ngượng, trải giấy lên bàn. Trong thư có cả đoạn kể từ lần gặp đầu, những buổi mưa chung đường, chiếc bánh trôi ở quán nhỏ và cả dự định vài năm sau sẽ đưa nàng đi thăm núi phía bắc. Mặc tiên sinh đọc không chê, chỉ chỉ vào mấy dòng cuối:
+
+> “Ta đã vì nàng thay đổi bao nhiêu điều, nguyện chờ đến khi nàng hiểu tấm lòng này.”
+
+— Con thấy câu này thế nào?
+
+— Rất thành tâm.
+
+— Nhưng có lẽ nàng chưa từng bảo con phải thay đổi, cũng chưa hứa sẽ có một ngày hiểu theo cách con mong. Con đang lấy việc mình tự chọn làm sức nặng đặt lên câu trả lời của nàng.
+
+Lâm Dã lặng đi. Hắn hỏi:
+
+— Thưa thầy, yêu mà không mong được đáp lại có phải giả dối không?
+
+— Mong được đáp lại là bình thường. Nhưng **mong** khác **đòi**. Người quân tử không cần giả vờ vô dục vô cầu; chỉ cần biết ham muốn của mình dừng ở đâu trước sự tự do của người khác.
+
+Thế là thiếu niên xé bản thư dài — không phải vì ba nghìn chữ tình cảm không thật, mà vì trong đó có nhiều điều cần viết cho chính mình, không cần bắt một người khác gánh lấy.
+
+Hắn chép lại trên tờ giấy mới:
+
+> “Thời gian qua, mình rất vui khi được trò chuyện và gặp cậu. Mình có tình cảm hơn mức bạn bè và muốn hỏi cậu có muốn tìm hiểu nhau theo hướng hẹn hò không. Nếu cậu không có cùng cảm xúc, mình tôn trọng.”
+
+Bốn dòng mà bàn tay run hơn ba nghìn chữ.
+
+### Đạo lý của người học nói thật
+
+Có ba điều cần phân minh.
+
+**Thứ nhất: tình cảm là thật.** Chẳng cần phủ nhận sự rung động để tỏ ra cao thượng.
+
+**Thứ hai: lựa chọn thuộc về hai người.** Bạn có thể quyết định bày tỏ, còn người kia quyết định có muốn đáp lại không.
+
+**Thứ ba: kết quả không xóa giá trị của sự chân thành.** Một lời không được đáp lại vẫn có thể được nói bằng thái độ tử tế; một lời được đồng ý vẫn cần tôn trọng các ranh giới tiếp theo.
+
+Vì thế, bày tỏ không nên là màn biểu diễn trước đám đông để người nhận ngại từ chối. Người ấy cần một lối ra dễ dàng, không phải một khán đài với trăm con mắt đang đợi tiếng “đồng ý”.
+
+### Đêm đọc thư
+
+Tống Nguyệt hẹn Lâm Dã ở sân sau quán sách để nói chuyện. Nàng nghe hắn nói, rồi lặng đi một lát.
+
+— Mình rất quý cậu. Nhưng mình không nghĩ về hai đứa theo hướng đó.
+
+Nước mưa nhỏ từ mái hiên xuống sân đá. Lâm Dã không nhớ mình đã chuẩn bị bao nhiêu câu. Trong lòng có một khoảng trống rất lớn, dẫu vậy hắn vẫn nghe rõ từng chữ.
+
+Hắn đáp:
+
+— Cảm ơn cậu đã nói thật. Mình hiểu. Mình sẽ không thúc ép chuyện này.
+
+Tống Nguyệt nhìn hắn:
+
+— Cậu có giận mình không?
+
+Hắn nghĩ rồi nói:
+
+— Mình hơi buồn. Nhưng cậu không làm gì sai. Mình sẽ cần chút thời gian để cân bằng lại.
+
+Họ chào nhau và đi về hai hướng. Không có sấm động, không có tiên nhân đổi số mệnh, cũng chẳng có một cái ôm bất ngờ khiến mọi chuyện chuyển thành chuyện tình đẹp.
+
+Mặc tiên sinh đợi ở cửa thư quán, thấy đồ đệ trở về, không hỏi “thành hay bại”, chỉ bắc ấm nước lên bếp.
+
+— Trời lạnh. Uống trà đã.
+
+Thiếu niên ngồi xuống, nhìn ngọn lửa, cười khổ:
+
+— Thầy ơi, con nghe đạo lý thì hiểu, đến lúc gặp thật vẫn đau.
+
+— Đau cũng được. Hiểu đạo lý không khiến người ta thành gỗ đá. Nó chỉ giúp con đừng vì đau mà làm điều sau này phải hổ thẹn.
+
+### Đọc ba câu trả lời có thể gặp
+
+**“Mình cũng muốn tìm hiểu.”** Đáng mừng. Nhưng hãy làm rõ hai người muốn thử hẹn hò như thế nào, đừng mặc định đồng ý tìm hiểu là hứa hẹn trọn đời.
+
+**“Mình chưa biết.”** Hãy cho không gian, đừng gửi lời nhắc hằng ngày. Bạn cũng không cần đứng đợi vô thời hạn.
+
+**“Mình không muốn.”** Chấp nhận. Không tranh luận, không mua thêm quà, không nhờ bạn bè thuyết phục. Một câu “không” không phải đề thi có đáp án bí mật.
+
+### Hai câu đối dưới hiên
+
+> *Tâm thành có thể trao trong một lời nhỏ;*  
+> *Duyên đến chẳng thể giữ bằng vạn tiếng van.*
+
+### Thơ lúc lá rụng
+
+> *Một lá thư đưa qua cuối ngõ,*  
+> *Được hay không, ấy chuyện hai người.*  
+> *Ta giữ lòng ngay khi bày tỏ,*  
+> *Chẳng buộc tình ai bởi lệ rơi.*
+
+### Bốn bài thực hành
+
+1. Viết lời bày tỏ có đủ cảm nhận, mong muốn, quyền từ chối.
+2. Gạch bỏ mọi câu lấy công lao hoặc đau khổ của bạn để tạo nghĩa vụ cho người nhận.
+3. Viết hai cách hồi đáp: khi được đồng ý và khi bị từ chối.
+4. Viết một kế hoạch chăm sóc bản thân cho ngày hôm sau, không phụ thuộc câu trả lời.
+
+**Lời phê của Mặc tiên sinh:** “Dám nói yêu là dũng. Dám nghe người khác không yêu mình là dũng lớn hơn. Không phải vì hết đau, mà vì vẫn giữ lễ khi đau.”
+
+---
+
+## PHẦN KHẢO GIẢI — KIẾN THỨC VÀ BÀI TẬP THỰC HÀNH
+
+
 > **Định luật:** Tỏ tình là lời chia sẻ, không phải “yêu cầu phê duyệt hợp đồng không thể từ chối”.
 
 ## 1. Khi nào nên nói?

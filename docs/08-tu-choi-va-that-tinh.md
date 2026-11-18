@@ -1,5 +1,131 @@
 # 08. 🩹 Thất tình bất tử: Bị từ chối vẫn giữ phong độ
 
+## HỒI CHÍN — SAU CƠN MƯA, NÚI VẪN XANH: ĐẠO CỦA NGƯỜI BIẾT BUÔNG
+
+Ba ngày sau lời bày tỏ, Lâm Dã không tới thư quán. Mặc tiên sinh cũng không sai người đi thúc. Đến ngày thứ tư, ông ghé quán mì đầu phố, thấy thiếu niên ngồi bên cửa sổ nhìn làn khói trắng bốc lên từ bát nước dùng.
+
+— Chán ăn à?
+
+— Vẫn ăn, thưa thầy. Chỉ thấy mọi thứ ít vui.
+
+Ông ngồi xuống, gọi một bát mì khác.
+
+— Thế là còn tốt. Buồn mà vẫn ăn được là thân thể đang âm thầm giúp con.
+
+Lâm Dã thở dài:
+
+— Con cứ nghĩ nếu mình giỏi hơn, thú vị hơn, kiếm nhiều tiền hơn thì có lẽ nàng sẽ chọn.
+
+Mặc tiên sinh lấy đôi đũa, gõ nhẹ vào miệng bát.
+
+— Người con thích có quyền chọn theo lòng họ, không phải theo một bảng xếp hạng phẩm chất. Trên đời có những người rất tốt, đặt cạnh nhau vẫn không thành một đôi. Chẳng ai phải kém đi để giải thích điều đó.
+
+— Vậy nỗ lực của con vô nghĩa?
+
+— Nỗ lực để biết lắng nghe, sống ngăn nắp, giữ lời, làm việc chăm chỉ có nghĩa với cả đời con. Chỉ phần nỗ lực nhằm buộc một người phải yêu con là đi nhầm đường.
+
+Thiếu niên cúi xuống ăn mì. Nước dùng vẫn nóng, rau thơm vẫn thơm. Chợ ngoài kia vẫn có tiếng người mua bán. Có những thứ thật nhỏ, nhưng khi đau lòng mới nhớ chúng chưa từng rời đi.
+
+### Bàn về bốn tầng buông
+
+**Tầng một — Buông câu trả lời.** Người ấy đã nói không, bạn không tìm cách biến không thành có.
+
+**Tầng hai — Buông phép đo.** Đừng dùng câu trả lời ấy làm thước đo cho giá trị con người mình.
+
+**Tầng ba — Buông việc theo dõi.** Không dò tin, không xem lịch trình, không mở tài khoản phụ để lấy thông tin.
+
+**Tầng bốn — Buông cuộc đời tưởng tượng.** Kế hoạch chung chưa từng được hai người cùng chọn chỉ là một khả năng bạn đã hy vọng, không phải điều người kia cướp đi.
+
+Buông không đồng nghĩa quên ngay. Nhớ mà không bám, buồn mà không gây hại, ấy đã là tiến bộ.
+
+### Chuyện một cành hạnh
+
+Lâm Dã trở lại thư quán, thấy một cành hạnh đã khô. Hắn định kéo cành cong trở lại chỗ cũ. Mặc tiên sinh ngăn:
+
+— Cành khô rồi, con uốn mạnh sẽ gãy. Cây muốn khỏe phải chăm rễ, tưới đất, chờ mùa mới; chẳng phải cứ cưỡng một nhánh đã cũ thì xuân quay lại.
+
+Ông bảo đệ tử quét sân, rửa chén, đọc sách, tối ngủ đủ, ngày gặp bạn bè. Không đưa ra một “bí quyết quên tình” trong bảy ngày, không bắt hắn phải tươi cười ngay lập tức.
+
+Lâm Dã mất một thời gian mới ngừng việc nhìn bóng dáng ai đó ngoài ngõ. Có hôm tốt hơn, có hôm lại buồn. Chuyện ấy không làm hắn thất bại.
+
+### Lời nhắn không gửi
+
+Một đêm, thiếu niên viết trên giấy:
+
+> “Tại sao cậu không thích mình? Mình đã cố gắng nhiều đến thế…”
+
+Hắn nhìn rất lâu, rồi xếp lại và không gửi.
+
+Sáng sau, hắn mở giấy viết tiếp vào cuối trang:
+
+> “Mình mong điều tốt cho cậu, dù không phải cạnh mình. Mình cũng mong điều tốt cho bản thân, dù điều đó cần thời gian.”
+
+Giấy ấy hắn giữ làm nhật ký, không đem trao để người kia phải chứng kiến nỗi buồn của mình như một món nợ.
+
+### Thầy trò luận về “bạn”
+
+— Nếu nàng muốn làm bạn, con có nên đồng ý ngay không?
+
+— Thưa thầy, con chưa chắc có thể trò chuyện như không có gì.
+
+— Thế con có thể nói cần thời gian.
+
+— Có ích kỷ không?
+
+— Không, nếu con không dùng sự xa cách làm hình phạt và không dùng tình bạn làm con đường bí mật để tiếp tục theo đuổi.
+
+Lâm Dã gật đầu. Hắn chọn tạm ít liên lạc. Khi gặp ở lớp, vẫn chào hỏi lịch sự. Chuyện chung thì giải quyết chung. Chuyện riêng không ép.
+
+### Khi đau trở thành điều nguy hiểm
+
+Mặc tiên sinh nói nghiêm hơn mọi khi:
+
+— Có người đau quá mà nghĩ làm hại mình để buộc người khác ở lại. Có người giận mà muốn tung chuyện riêng, theo dõi, đe dọa. Đó không còn là thơ buồn, mà là chuyện cần dừng ngay và tìm sự giúp đỡ.
+
+Nếu buồn đến mức mất sinh hoạt kéo dài, thấy tuyệt vọng quá sức hoặc có ý nghĩ tự làm hại, hãy tìm người đáng tin, chuyên gia phù hợp hoặc dịch vụ hỗ trợ khẩn cấp. Không cần một mình chịu đựng chỉ để chứng minh mình kiên cường.
+
+### Một cuộc gặp khác ở thư quán
+
+Nhiều tuần sau, Tống Nguyệt đến trả một quyển sách đã mượn. Lâm Dã đang sắp sách.
+
+— Dạo này cậu thế nào? — nàng hỏi.
+
+— Cũng ổn hơn rồi. Mình đang học chụp ảnh.
+
+— Thật à? Có ảnh nào đẹp không?
+
+— Có vài tấm. Được một tấm không nhòe là tiến bộ lớn.
+
+Nàng cười. Họ trao sách, nói đôi câu rồi chia tay. Không có lời hứa hẹn mới. Lâm Dã cũng không cố biến lần gặp này thành cơ hội bắt đầu lại.
+
+Sau hôm ấy hắn thấy lòng mình nhẹ hơn một chút. Không phải vì tình cảm được đền đáp, mà vì đã hiểu mình có thể giữ sự tử tế mà vẫn đi tiếp.
+
+### Khúc thơ sau mưa
+
+> *Người qua để lại mùa hoa cũ,*  
+> *Ta giữ đường về chẳng trách ai.*  
+> *Một giọt mưa rơi rồi đất thấm,*  
+> *Trời quang, lòng cũng sẽ nguôi dài.*
+
+### Bảy việc của một ngày bình thường
+
+1. Ăn uống, ngủ và chăm sức khỏe.
+2. Đi học, làm việc hoặc làm một việc nhỏ cần thiết.
+3. Không kiểm tra mạng xã hội người đã từ chối.
+4. Gặp một người bạn hoặc người thân tin cậy.
+5. Vận động hoặc đi dạo.
+6. Viết một điều bạn biết ơn trong ngày.
+7. Cho phép bản thân buồn mà không làm hại ai.
+
+**Đề cuối chương:** Viết “điều tôi mất” và “điều tôi vẫn còn” thành hai cột. Đảm bảo cột thứ hai có cả bạn bè, năng lực, cơ hội, niềm vui, sức khỏe, quyền tự quyết. Bạn không phải phủ nhận cột thứ nhất; chỉ cần không để nó che hết nhân gian.
+
+**Lời phê:** “Buông tay không phải thua một người. Là nhớ ra bàn tay mình còn có thể cầm sách, nâng bát cơm, giúp bạn hữu và đón một ngày mới.”
+
+---
+
+## PHẦN KHẢO GIẢI — KIẾN THỨC VÀ BÀI TẬP THỰC HÀNH
+
+
 > *Game over với một mối duyên không có nghĩa là game over với cuộc đời.*
 
 ## 1. Từ chối không phải bản án về giá trị của bạn

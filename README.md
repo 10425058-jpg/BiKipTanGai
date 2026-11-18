@@ -1,5 +1,37 @@
 # 📜 BÍ KÍP TÁN GÁI — TÂM PHÁP CHO ĐẠO HỮU ĐỘC THÂN
 
+
+## 🪶 Hồng Trần Tình Thư — bản truyện cổ phong nguyên tác
+
+> *“Một lòng muốn cùng người ngắm trăng là tình. Muốn ép trăng chỉ soi nhà mình, ấy là tham.”*
+
+Bộ bí kíp nay có thêm **mạch truyện 11 hồi**: một thầy đồ già tên **Mặc tiên sinh**, học trò **Lâm Dã**, cô bạn **Tống Nguyệt**, cùng những câu chuyện rất nhỏ ở thư quán thành Thanh Liễu.
+
+Mỗi chương mở đầu bằng **một hồi truyện mới viết**, có thoại thầy trò, thơ, công án, cách kể cổ phong, châm biếm duyên dáng và một đạo lý để suy ngẫm. Phần phía dưới vẫn giữ kiến thức thực hành, ví dụ hội thoại, bài tập và checklist.
+
+**📖 [Đọc LỜI TỰA trước khi nhập môn](LOI-TUA-HONG-TRAN-TINH-THU.md)**
+
+### Mười một hồi thư quán
+
+| Hồi | Tên hồi | Đường đọc |
+|---|---|---|
+| I | Vấn tâm trước khi vấn tình | [Chương 00](docs/00-loi-the-nhap-mon.md) |
+| II | Tu thân chẳng phải để chào hàng bản thân | [Chương 01](docs/01-xay-dung-ban-than.md) |
+| III | Một câu chào, hai người tự tại | [Chương 02](docs/02-mo-loi-tu-nhien.md) |
+| IV | Một bức thư không phải một sợi dây buộc người | [Chương 03](docs/03-nhan-tin.md) |
+| V | Giữa hai bờ sông, đừng lấy gợn nước làm lời hứa | [Chương 04](docs/04-tin-hieu-va-ranh-gioi.md) |
+| VI | Một bình trà, hai ghế ngồi | [Chương 05](docs/05-hen-ho.md) |
+| VII | Đạo của tiếng cười | [Chương 06](docs/06-giao-tiep-hai-huoc.md) |
+| VIII | Lá thư dưới mưa | [Chương 07](docs/07-bay-to-cam-xuc.md) |
+| IX | Sau cơn mưa, núi vẫn xanh | [Chương 08](docs/08-tu-choi-va-that-tinh.md) |
+| X | Hai người cùng giữ một ngọn đèn | [Chương 09](docs/09-yeu-lanh-manh.md) |
+| XI | Đại khảo Tình Thư Viện | [Chương 10](docs/10-case-study.md) |
+
+**Lưu ý về sáng tác:** Truyện và thơ là nội dung mới, mang tinh thần cổ phong và đối thoại triết lý nói chung; **không** phải bản chép, chuyển thể hay tác phẩm trong vũ trụ của tiểu thuyết *Kiếm Lai*.
+
+---
+
+
 > **“Ta tu đạo 20 năm, nay để lại cuốn bí tịch này cho người hữu duyên.”**  
 > *Tác dụng phụ: bớt ngại giao tiếp, bớt nhắn “em ngủ chưa” lúc 2 giờ sáng, tăng khả năng chấp nhận chữ “không”.*
 

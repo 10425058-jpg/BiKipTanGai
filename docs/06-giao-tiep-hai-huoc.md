@@ -1,5 +1,131 @@
 # 06. 🎭 Khẩu công thượng thừa: Hài hước mà không thành “hài cốt”
 
+## HỒI BẢY — ĐẠO CỦA TIẾNG CƯỜI: MỘT LỜI ĐÚNG CHỖ HƠN TRĂM LỜI CỐ NÓI
+
+Dưới chân núi Thanh Liễu có một quán mì. Bà chủ quán tính tình vui vẻ, lúc nào cũng biết đem chuyện thường nhật kể thành một khúc hài. Khách ăn lỡ đánh đổ đũa, bà bảo: “Đũa nhà ta hôm nay có chí lớn, muốn ra ngoài hành tẩu giang hồ.” Nói rồi bà đưa đôi đũa mới, không để người làm rơi phải ngượng.
+
+Lâm Dã bèn đem chuyện đó về thư quán, tuyên bố mình muốn luyện thành người nói câu nào cũng khiến thiên hạ bật cười.
+
+Mặc tiên sinh hỏi:
+
+— Nếu hôm ấy người ta đang buồn, con vẫn muốn chọc cười bằng mọi giá?
+
+— Nhưng hài hước khiến người khác quý mình mà.
+
+— Có khi thế. Nhưng lời vui đúng lúc là chén nước mát. Lời vui sai lúc có thể là thêm một viên đá vào lòng người.
+
+Để thử, thầy đặt trước mặt đệ tử ba tờ giấy. Tờ đầu viết “người vừa đỗ kỳ thi”, tờ thứ hai viết “người đánh mất chiếc ví”, tờ thứ ba viết “người vừa hay tin gia đình có chuyện buồn”.
+
+— Mỗi người đều đến quán, con sẽ nói gì?
+
+Lâm Dã nhìn tờ giấy đầu:
+
+— “Chúc mừng, lần này chắc sách vở cuối cùng chịu phục cậu.”
+
+— Được. Tờ thứ hai?
+
+— “Đừng buồn, ví tiền của cậu chắc đi tu hành xa…”
+
+— Nếu người ấy đang thật sự lo tiền thì sao?
+
+— Vậy con nên hỏi họ có cần giúp tìm không.
+
+— Tờ thứ ba?
+
+Lâm Dã im lặng rồi đáp:
+
+— Con không kể chuyện cười. Con hỏi thăm.
+
+Mặc tiên sinh mỉm cười:
+
+— Hóa ra con đã hiểu. Hài hước chẳng phải một thanh kiếm rút ra lúc nào cũng phải múa. Có khi bỏ kiếm xuống mới là người có bản lĩnh.
+
+### Ba tầng của tiếng cười
+
+**Tầng đầu — Cười vì điều bất ngờ.** Một câu kể có điểm ngoặt vô hại khiến người khác mỉm cười: đi mua một củ hành mà về nhà mang theo cả một túi bánh.
+
+**Tầng hai — Cười vì hiểu nhau.** Hai người cùng trải qua một sự cố, sau này nhắc lại bằng sự trìu mến. Chẳng hạn cùng đi ăn quán “món nào cũng hết” rồi cuối cùng chỉ uống nước.
+
+**Tầng ba — Cười mà giữ được thể diện nhau.** Người mắc lỗi nhỏ được giúp đỡ chứ không thành mục tiêu chế giễu. Đây là tầng người tu khẩu công phải xem trọng nhất.
+
+Hài hước về ngoại hình, hoàn cảnh gia đình, tổn thương hoặc sự tự ti của người khác có thể khiến người nghe thấy bị công kích. Đừng lấy “chỉ đùa” làm tấm khiên để né trách nhiệm.
+
+### Lời đùa có duyên là lời biết chỗ đứng
+
+Một hôm Tống Nguyệt ghé thư quán, thấy Lâm Dã vẽ hoa mẫu đơn mà hình dáng giống cây cải.
+
+Nàng hỏi:
+
+— Hoa gì thế?
+
+Hắn đáp:
+
+— Theo ý định của mình là hoa mẫu đơn. Theo đánh giá của người bán rau chắc là bông cải xanh.
+
+Nàng bật cười, rồi cùng hắn sửa lại bức vẽ.
+
+Về sau, khi Tống Nguyệt gặp chuyện buồn, Lâm Dã định nói một câu tương tự. Nhưng nàng im lặng, nét mặt mỏi mệt. Hắn bèn hỏi:
+
+— Cậu có muốn kể không? Nếu chưa muốn, mình ngồi đây một lúc cũng được.
+
+Hôm ấy không ai cười nhiều. Nhưng giữa hai người có thêm một chút tin cậy.
+
+### Năm cách luyện một câu nói có duyên
+
+**Một, quan sát trước khi nói.** Thấy điều gì vui trong sự việc chung, hãy nói về sự việc ấy, không bới khuyết điểm người khác.
+
+**Hai, kể chuyện có mở và kết.** Đừng bắt người nghe đi qua ba thế hệ họ hàng để tới một cú đùa về việc quên mang ô.
+
+**Ba, tự trào vừa phải.** Tự nhận lỡ vụng là đáng yêu; tự chửi mình không ra gì cả tối lại khiến người nghe phải làm người trấn an.
+
+**Bốn, đừng ép tiếng cười.** Nếu câu đùa không được hưởng ứng, cười nhẹ rồi chuyển. Hỏi “Sao không cười?” chỉ làm câu đùa chết thêm lần nữa.
+
+**Năm, xin lỗi nếu lỡ lời.** “Mình xin lỗi, mình đùa sai chỗ” là một câu ngắn mà người giỏi văn chương cũng cần học.
+
+### Công án: Người kể chuyện không biết dừng
+
+Có một chàng trai vào quán kể chuyện bản thân trong một canh giờ, kể đến đâu cũng tự cười đến đấy. Khi hắn hỏi cô nương đối diện có thấy vui không, nàng đáp:
+
+— Ta nghe ngươi nói chuyện lâu như vậy, giờ muốn biết ngươi có nghe nổi một câu của ta không.
+
+Chàng trai sững người.
+
+Mặc tiên sinh kể đến đây, nhìn Lâm Dã:
+
+— Hài hước có thể là món quà. Nhưng người chỉ mãi đưa quà của mình mà không chịu nhận điều người kia muốn chia sẻ, cuộc nói chuyện cũng trở nên đơn độc.
+
+**Chữ “duyên” trong nói năng chẳng phải câu nào cũng đẹp, mà là câu nào cũng còn chỗ cho người khác.**
+
+### Bảy câu nói làm phép thử
+
+1. “Hôm nay mưa, lịch đi chơi của mình chuyển sang chế độ thủy chiến.” — Có thể vui nếu cả hai không gặp khó khăn vì mưa.
+2. “Bạn ăn nhiều thế!” — Dễ động vào ngoại hình; không dùng.
+3. “Bạn làm bài thuyết trình mượt ghê, nhất là đoạn giải thích ví dụ.” — Lời khen cụ thể, chân thành.
+4. “Mình chụp ảnh mà máy cứ chọn cái cây phía sau làm nhân vật chính.” — Tự trào nhẹ.
+5. “Sao bạn khó tính vậy, không biết đùa à?” — Phủ nhận cảm xúc người nghe; không dùng.
+6. “Câu đó mình nói không khéo, xin lỗi bạn.” — Cách sửa sai trưởng thành.
+7. “Nghe chuyện đó chắc cậu buồn. Mình nghe đây.” — Có lúc câu không hài lại là câu đáng nói nhất.
+
+### Thơ nói về nụ cười
+
+> *Lời vui xin để cùng người hưởng,*  
+> *Đừng mượn vết đau để vỗ tay.*  
+> *Một tiếng cười trong như nước suối,*  
+> *Trước tiên xin giữ một lòng ngay.*
+
+### Bài khảo hạch
+
+Hãy kể một chuyện bạn từng làm vụng về trong 100 từ: ba phần bối cảnh — biến cố — kết. Sau đó viết lại chuyện ấy thành 40 từ mà vẫn dễ hiểu. Chọn một câu đùa dễ động chạm người khác, sửa thành câu đùa về hoàn cảnh. Cuối cùng, viết một lời xin lỗi nếu câu đùa không phù hợp.
+
+Mặc tiên sinh gấp sách, bảo:
+
+— Cười với nhau thì tốt. Cười trên nỗi khổ của nhau thì không. Người hiểu được hai chữ “với nhau” đã học được quá nửa đạo của tiếng cười.
+
+---
+
+## PHẦN KHẢO GIẢI — KIẾN THỨC VÀ BÀI TẬP THỰC HÀNH
+
+
 > “Em có bản đồ không? Anh lạc…” — Khoan. Hãy để câu đó nằm yên ở viện bảo tàng meme.
 
 ## 1. Hài hước tốt là gì?

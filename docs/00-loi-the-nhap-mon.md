@@ -1,5 +1,7 @@
 # 00. 📿 Lời thề nhập môn — Đạo tán tỉnh không phải tà đạo
 
+📚 **Thi tập mở rộng:** [44 khúc thơ và 55 lời bàn của Thanh Liễu](../bonus/thi-tap-thanh-lieu.md).
+
 ## HỒI MỘT — VẤN TÂM TRƯỚC KHI VẤN TÌNH
 
 *Trích «Hồng Trần Tình Thư», một bộ du ký hư cấu viết riêng cho thư viện này.*
@@ -95,6 +97,78 @@ Tình cảm cũng vậy. Bạn có thể ngắm, có thể hỏi, có thể cùn
 5. Giải thích bằng lời mình: vì sao bền chí trong học tập tốt, còn bám đuổi bất chấp từ chối lại không ổn?
 
 **Lời phê của Mặc tiên sinh:** *“Trước khi học tìm người đồng hành, phải học trở thành người có thể đi một mình. Người tự đứng được mới có thể nắm tay mà không níu kéo.”*
+
+---
+
+### Ngoại truyện: Bát nước đặt giữa đường
+
+Mùa hạ năm ấy, một khách lạ đến thư quán, áo gấm sáng như gương. Người này tự xưng đã đi khắp mười ba thành, học đủ cách khiến người khác lưu luyến. Anh ta đặt lên bàn một cuốn sách dày: *Bách kế công tâm*, bìa mạ vàng, bên trong toàn những quy tắc khiến người nghe phải chờ đợi, nghi ngờ, ghen tuông.
+
+Mặc tiên sinh không mở sách. Ông đặt một bát nước giữa bàn rồi hỏi:
+
+— Ngươi thử khiến mặt nước này không động xem.
+
+Khách nhân đáp:
+
+— Chỉ cần không ai chạm vào.
+
+Ông gật đầu, lại hỏi:
+
+— Nếu một người khát muốn uống?
+
+— Vậy nên cho người ấy uống.
+
+— Thế nếu ngươi không muốn cho?
+
+— Bát nước là của ta, ta có quyền giữ.
+
+— Đúng. Vậy vì sao ngươi cho rằng lòng người khác thì có thể dùng trăm kế mà đoạt lấy?
+
+Khách nhân cau mày. Anh ta cho rằng chuyện người với nước sao có thể so sánh. Mặc tiên sinh đáp:
+
+— Ta không bảo lòng người là nước. Ta chỉ hỏi ngươi: ngay đến bát nước có chủ, ngươi còn biết không tự tiện cầm; đến lựa chọn của một người, sao ngươi lại muốn vượt qua?
+
+Lâm Dã đứng bên nghe đến ngẩn người. Hắn vốn tưởng “cao thủ tình trường” là người biết đường tắt. Nay hắn chợt hiểu: đường tắt có khi chỉ là một lối đi xuyên qua vườn nhà người khác.
+
+Khách nhân không phục, hỏi:
+
+— Nếu không dùng kế, chẳng lẽ chỉ ngồi chờ duyên tự tới?
+
+Mặc tiên sinh bật cười.
+
+— Ta chưa từng nói phải ngồi chờ. Con muốn học đàn thì đến hỏi thầy đàn, muốn kết bạn thì mở lời, có cảm tình thì bày tỏ. Chủ động là tự bước bằng hai chân mình. Cưỡng ép là bắt chân người khác bước thay.
+
+Rồi ông đẩy cuốn *Bách kế công tâm* lại phía khách, nhẹ nhàng nói:
+
+— Ngươi có thể giữ sách. Nhưng nếu đọc thêm một quyển nữa, ta khuyên đọc sách dạy người ta nghe.
+
+Người khách bỏ đi, chẳng biết có đổi ý không. Mặc tiên sinh cũng không chạy theo thuyết phục. Lâm Dã nhận ra ngay cả thầy mình cũng tuân theo điều ông dạy.
+
+#### Lời bàn về tâm và thuật
+
+Người đời thích hỏi “thuật nào hữu hiệu?”. Thật ra thuật chỉ là cách làm. Cùng một câu “Bạn khỏe không?” có thể là lời quan tâm chân thành, cũng có thể là mở đầu cho một chuỗi đòi hỏi. Muốn xét một hành động, phải xem **bối cảnh, ý định, tác động và quyền lựa chọn** của người nhận.
+
+Người có lòng tốt vẫn có thể làm điều không tốt khi quên hỏi xem người khác có cần hay không. Người có lời đẹp vẫn có thể gây sợ hãi nếu cứ xuất hiện dù đã được yêu cầu dừng. Đạo lý không nằm hết ở sự khéo miệng; nó còn ở việc có chịu trách nhiệm với hành vi của mình.
+
+> **Lời ghi bên án thư:** “Có thể học cách bước tới một người; không nên học cách khóa đường lùi của họ.”
+
+#### Thi kệ: Hai bờ tự nguyện
+
+> *Tâm ta là một dòng sông nhỏ,*  
+> *Tâm người đâu phải bến riêng ta.*  
+> *Nếu cùng chung hướng, thuyền xuôi nhẹ,*  
+> *Nếu khác dòng, xin chớ dựng đê.*
+
+#### Thi kệ: Một chữ minh
+
+> *Sớm gặp trao nhau lời chân thật,*  
+> *Chiều xa chẳng gửi tiếng oán than.*  
+> *Tình chưa thành, nghĩa còn nguyên vẹn,*  
+> *Đó cũng là xuân giữa thế gian.*
+
+#### Câu hỏi để ngẫm
+
+Nếu một người nói “Tôi chỉ muốn làm bạn”, bạn mong muốn điều gì? Bạn **được phép** tiếp tục mong có người yêu, **được phép** cần thời gian để nguôi; nhưng bạn **không được phép** biến mong muốn ấy thành nghĩa vụ của họ. Hãy viết hai cột: *Điều thuộc lòng mình* và *Điều thuộc quyền người ấy*. Chỉ ghi kế hoạch hành động ở cột đầu.
 
 ---
 

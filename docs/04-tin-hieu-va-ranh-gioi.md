@@ -1,5 +1,7 @@
 # 04. 🚦 Đọc tín hiệu: Đừng lấy một cái tim làm giấy đăng ký kết hôn
 
+📚 **Thi tập mở rộng:** [44 khúc thơ và 55 lời bàn của Thanh Liễu](../bonus/thi-tap-thanh-lieu.md).
+
 ## HỒI NĂM — GIỮA HAI BỜ SÔNG, ĐỪNG LẤY GỢN NƯỚC LÀM LỜI HỨA
 
 Trong sân thư quán có chiếc ao nhỏ. Mỗi độ xuân về, một cánh hoa rụng xuống là sóng gợn thành vòng. Lâm Dã thích ngồi đó, suy nghĩ những dấu hiệu mà mình cho là tình ý.
@@ -127,6 +129,82 @@ Từ đó thiếu niên hiểu: kỹ năng đọc tín hiệu cuối cùng khôn
 Cho các dữ kiện: nàng thả tim story; nàng nói chỉ muốn làm bạn; nàng từ chối nhưng đề xuất ngày khác; nàng yêu cầu ngừng nhắn; nàng đồng ý đi uống trà. Hãy viết riêng phần **điều biết chắc**, **điều chưa biết**, **hành động đúng**. Đừng cho một dấu hiệu trung tính sức mạnh lớn hơn lời người ấy nói.
 
 **Thầy phê:** “Có những cửa không mở cho ta. Người biết lễ quay về, không phải vì yếu đuối, mà bởi vốn không có đạo lý nào cho phép phá cửa chỉ vì lòng mình đang vội.”
+
+---
+
+### Ngoại truyện: Người đo bóng nắng
+
+Cạnh bến sông Thanh Liễu có một ông đồ chuyên xem giờ bằng chiếc cọc gỗ cắm trên sân. Buổi sớm bóng đổ dài, giữa trưa ngắn, chiều lại nghiêng. Một người trẻ đến hỏi liệu chỉ nhìn một bóng nắng có đoán được ngày mai trời mưa hay không.
+
+Ông đồ lắc đầu.
+
+— Một chiếc bóng nói cho con biết ánh sáng giờ này. Muốn đoán trời mưa phải nhìn mây, gió, những dấu hiệu khác; mà đã nhìn đủ, vẫn có khi sai.
+
+Lâm Dã nghe chuyện, nghĩ tới những lần mình đoán tình cảm từ một biểu tượng trái tim, một lời chúc ngủ ngon, một lần được hỏi thăm.
+
+Hắn đến thư quán, kể với Mặc tiên sinh rằng mình muốn học “xem bóng lòng người”.
+
+Thầy hỏi:
+
+— Nếu người ta nói “Ta không muốn hẹn hò”, con còn cần xem bóng không?
+
+— Không. Lời ấy đã rõ.
+
+— Nếu họ nói “Ta chưa chắc”?
+
+— Con không được tự biến chưa chắc thành đồng ý.
+
+— Nếu họ mỉm cười?
+
+— Con có thể vui vì nụ cười ấy, nhưng không nên tự viết thêm cả một đoạn đời vào đó.
+
+Mặc tiên sinh mỉm cười. Ông bảo những người hấp tấp thường mắc hai cái lầm: một là cho rằng mình hiểu người khác chỉ vì rất thích họ; hai là cho rằng chưa hiểu thì có quyền đi tìm thông tin bằng mọi cách.
+
+— Người ta không phải cuốn sách đặt ở quầy công cộng. Có những trang chỉ người ấy muốn kể mới được mở.
+
+#### Chuyện chiếc khăn
+
+Trong buổi gặp gỡ của hội đọc sách, một cô gái làm rơi chiếc khăn. Chàng trai bên cạnh nhặt lên trao lại, cô cảm ơn và mỉm cười. Chàng về khoe rằng nàng đã rung động. Bạn anh nhắc có thể nàng chỉ lịch sự, nhưng anh không nghe.
+
+Mấy tuần sau, anh bắt đầu đứng chờ ở lối về. Cô gái tỏ ra không thoải mái, nói muốn được yên. Anh lại nghĩ nàng “thử lòng”.
+
+Khi nghe chuyện, Mặc tiên sinh không bàn xem nụ cười đầu có ý nghĩa gì nữa. Ông nói:
+
+— Ngay khi nàng nói muốn yên, điều cần hiểu đã rõ. Có những sai lầm không nằm ở lần đoán ban đầu, mà ở việc không chịu sửa sau khi được nói thẳng.
+
+**Một lời nói rõ có thể thay đổi mọi phỏng đoán trước nó.**
+
+#### Bốn ranh giới cần thuộc lòng
+
+**Ranh giới của thời gian:** Đừng yêu cầu người ấy phản hồi tức khắc.
+
+**Ranh giới của thân thể:** Không tự ý ôm, nắm tay, hôn; sự đồng ý phải tự nguyện, phù hợp và có thể đổi ý.
+
+**Ranh giới của dữ liệu:** Không kiểm tra thiết bị, mật khẩu, vị trí, tin nhắn; không tìm tài khoản phụ khi bị chặn.
+
+**Ranh giới của cuộc gặp:** Không cố giữ người đang muốn về, không theo sau, không tới nhà hoặc nơi làm việc để “tạo bất ngờ” khi chưa được mời.
+
+#### Thi kệ: Bóng nắng
+
+> *Bóng nắng qua thềm còn đổi hướng,*  
+> *Lòng người sao đo bởi nụ cười?*  
+> *Điều chưa rõ, hỏi cho ngay thẳng,*  
+> *Điều đã không, xin trả về người.*
+
+#### Thi kệ: Cửa vườn
+
+> *Cửa vườn khép lại không là hận,*  
+> *Chủ muốn riêng tư, khách nên về.*  
+> *Người biết dừng chân bên bậc cửa,*  
+> *Giữ cho trăng sáng cả hai quê.*
+
+#### Bài luận ngắn: Tín hiệu không phải cam kết
+
+“Cô ấy chủ động nhắn” có thể là lời mời trò chuyện. “Cô ấy đồng ý đi uống trà” là đồng ý **buổi uống trà đó**. “Cô ấy muốn tiếp tục tìm hiểu” là đồng ý **tìm hiểu ở thời điểm này**. Đừng tự thêm quyền mà người ấy chưa trao.
+
+Người biết đọc tín hiệu thật sự không phải người tuyên bố đoán đúng mọi suy nghĩ; đó là người biết mình **chưa biết**, nên cư xử cẩn trọng.
+
+**Bài tập:** Viết ba cột cho một tình huống: *dữ kiện*, *các khả năng*, *hành động tôn trọng*. Nếu có lời từ chối, hãy đặt nó ở cột dữ kiện, đừng lén chuyển sang cột khả năng.
 
 ---
 

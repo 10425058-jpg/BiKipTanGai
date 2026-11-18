@@ -1,5 +1,7 @@
 # 09. 🌱 Khi đã có đôi: Nhiệm vụ chính giờ mới bắt đầu
 
+📚 **Thi tập mở rộng:** [44 khúc thơ và 55 lời bàn của Thanh Liễu](../bonus/thi-tap-thanh-lieu.md).
+
 ## HỒI MƯỜI — TÌNH LÀ HAI NGƯỜI CÙNG GIỮ MỘT NGỌN ĐÈN
 
 Cuối năm, Thanh Liễu trở lạnh. Lâm Dã đi đưa sách cho một người bạn cũ tên **Phan Mộc**, thợ mộc trẻ sống ở bờ đông. Phan Mộc đã thành thân với **Diệp Nghi**, người dạy học trong làng. Hai người vốn được khen là hợp nhau, vậy mà hôm ấy vừa đến cửa Lâm Dã đã nghe tiếng tranh luận.
@@ -108,6 +110,84 @@ Mặc tiên sinh kết luận:
 — Kẻ giỏi thắng lòng người chưa chắc giỏi giữ một mối quan hệ. Người giỏi đồng hành không phải người không bao giờ sai, mà là người biết sửa và không xem tình cảm như giấy phép làm sai.
 
 *Học yêu, rốt cuộc là học cách sống tử tế hơn khi ở cạnh người khác — và cũng giữ được mình.*
+
+---
+
+### Ngoại truyện: Hai chiếc mái ngói khác màu
+
+Trong làng có một đôi vợ chồng xây nhà. Người chồng Phan Mộc muốn lợp ngói xanh, người vợ Diệp Nghi thích ngói nâu. Hai người tranh luận, Phan Mộc cho rằng mình là thợ mộc, tất phải hiểu nhà hơn; Diệp Nghi lại bảo nàng sống trong nhà mỗi ngày, sao ý mình không đáng kể.
+
+Họ đem chuyện hỏi Mặc tiên sinh. Ông nghe xong chỉ nói:
+
+— Nhà ấy của ai?
+
+— Của cả hai, — họ cùng đáp.
+
+— Vậy hai người đã nghe xem người kia muốn gì, hay mới nghe xem người kia có chịu chọn màu của mình không?
+
+Hai vợ chồng bỗng nhìn nhau. Diệp Nghi thích ngói nâu vì nhớ mái nhà của mẹ, thấy màu ấy ấm áp. Phan Mộc muốn ngói xanh vì vùng này nắng lớn, loại ngói đang tính mua có lớp phủ phù hợp và dễ bảo trì. Họ thử tìm loại ngói đáp ứng điều kiện kỹ thuật với màu được cả hai chấp nhận. Cuối cùng chọn màu đất nung sẫm, đẹp hơn dự định ban đầu.
+
+Không phải mỗi cuộc cãi vã đều có đáp án đôi bên cùng thích. Nhưng ít nhất trước khi nhượng bộ, mỗi người cần được hiểu đúng điều mình đang nói.
+
+#### Cái khác giữa nhu cầu và mệnh lệnh
+
+**Nhu cầu:** “Mình muốn được báo khi kế hoạch đã hẹn thay đổi, để khỏi chờ và lo.”
+
+**Mệnh lệnh kiểm soát:** “Từ nay bạn đi đâu cũng phải chụp ảnh gửi mình.”
+
+**Nhu cầu:** “Mình muốn có thêm thời gian hai đứa ở bên nhau.”
+
+**Mệnh lệnh kiểm soát:** “Bạn không được gặp bạn bè nữa.”
+
+**Nhu cầu:** “Mình muốn hiểu hai đứa kỳ vọng gì về sự chung thủy.”
+
+**Mệnh lệnh kiểm soát:** “Đưa tất cả mật khẩu để mình kiểm tra.”
+
+Người đang yêu có quyền có nhu cầu. Điều họ không có là quyền biến nhu cầu thành giấy phép tước tự do của bạn đời.
+
+#### Vấn đáp dưới mái nhà
+
+— Thầy, hai người yêu nhau có cần giống nhau hết không?
+
+— Không. Ngói có thể khác màu, miễn mái nhà được xây bằng thỏa thuận hai phía và đủ che mưa cho cả hai.
+
+— Nếu cãi nhau thì sao?
+
+— Nói sự việc, nói điều mình cảm thấy, nghe người kia, cùng tìm cách giải quyết. Nếu một người đe dọa, đánh đập, cưỡng ép hoặc cô lập người còn lại, đó không phải cuộc tranh luận bình thường; phải ưu tiên an toàn.
+
+— Nếu ta xin lỗi?
+
+— Lời xin lỗi mở cửa cho việc sửa, không thay thế việc sửa.
+
+— Nếu người kia vẫn không muốn tiếp tục?
+
+— Một mối quan hệ cũng cần hai người cùng muốn. Kết thúc trong tôn trọng là điều có thể làm.
+
+#### Thi kệ: Mái nhà
+
+> *Hai màu ngói đặt lên chung mái,*  
+> *Khác ý không thành chuyện thắng thua.*  
+> *Mỗi người giữ một phần trời rộng,*  
+> *Cùng che cho nhau những trận mưa.*
+
+#### Thi kệ: Cây đèn
+
+> *Đèn nhỏ không cần ai giữ hết,*  
+> *Mỗi người che gió một bên hiên.*  
+> *Có lỗi thì thưa bằng việc sửa,*  
+> *Chớ lấy thương yêu thế lời phiền.*
+
+#### Năm cuộc nói chuyện nên có
+
+1. **Thời gian:** cả hai cần bao nhiêu thời gian chung và riêng?
+2. **Tiền bạc:** chi tiêu, quà tặng, vay mượn, giới hạn nào khiến mình thoải mái?
+3. **Riêng tư:** điều gì muốn giữ riêng và điều gì cần báo theo thỏa thuận?
+4. **Bất đồng:** khi nóng giận nên nghỉ bao lâu và khi nào quay lại trao đổi?
+5. **Cam kết:** mong muốn của hai người về mối quan hệ này có giống nhau không?
+
+Đừng lấy bảng câu hỏi biến buổi hẹn thành cuộc họp hội đồng quản trị. Hãy chọn lúc phù hợp, mỗi lần một vấn đề.
+
+**Thầy phê:** “Ở bên nhau lâu không chỉ cần thích. Còn cần khả năng nói điều khó nghe mà không làm tổn thương, và nghe điều mình không thích mà không vội phản kích.”
 
 ---
 

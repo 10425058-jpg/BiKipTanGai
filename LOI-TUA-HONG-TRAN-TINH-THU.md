@@ -65,3 +65,10 @@ Mỗi chương có **hai tầng đọc**: (1) một hồi truyện cổ phong đ
 ---
 
 *Lời tựa này là tác phẩm hư cấu. Mọi chuyện tình cảm trong thực tế cần đặt trên sự tự nguyện, tôn trọng, an toàn và giao tiếp rõ ràng.*
+
+
+---
+
+## Mở rộng thi văn Thanh Liễu
+
+Ngoài chính truyện 11 hồi và phần khảo giải, thư quán còn lưu giữ [**Thi tập Thanh Liễu — 44 khúc thơ, 55 lời bàn**](bonus/thi-tap-thanh-lieu.md). Mỗi hồi cũng có một ngoại truyện mới viết, thêm cuộc vấn đáp và bài luyện ứng xử. Mọi câu thơ, lời bàn là sáng tác mới với cảm hứng cổ phong chung; không trích tác phẩm khác.

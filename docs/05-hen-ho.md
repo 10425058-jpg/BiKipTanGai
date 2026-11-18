@@ -1,5 +1,7 @@
 # 05. ☕ Buổi hẹn đầu: Đừng biến ly cà phê thành buổi bảo vệ luận án cưới hỏi
 
+📚 **Thi tập mở rộng:** [44 khúc thơ và 55 lời bàn của Thanh Liễu](../bonus/thi-tap-thanh-lieu.md).
+
 ## HỒI SÁU — MỘT BÌNH TRÀ, HAI GHẾ NGỒI, ĐỦ CHO MỘT NGÀY ĐẸP
 
 Tống Nguyệt nhận lời mời uống trà. Ngày hẹn còn ba hôm, Lâm Dã đã đi quanh thành chọn quán. Quán thứ nhất sơn son thếp vàng, giá một ấm trà gần bằng học phí ba tháng. Quán thứ hai trên đỉnh núi, muốn đến phải leo chín trăm bậc đá. Quán thứ ba có đội nhạc công, đốt pháo và thả đèn trời.
@@ -106,6 +108,90 @@ Hãy tự thiết kế một buổi hẹn: địa điểm công cộng, lộ tr�
 Đặt câu hỏi cuối cùng: “Nếu người ấy không muốn gặp lần thứ hai, buổi hẹn đầu của mình có còn là một cuộc gặp tử tế không?”
 
 **Lời cuối:** “Tình cảm không lấy sự sang trọng làm thước. Lấy sự sẵn lòng làm đầu, lấy chân thành làm giữa, lấy tôn trọng làm cuối.”
+
+---
+
+### Ngoại truyện: Một tấm bản đồ không có điểm thắng
+
+Ngày chuẩn bị cho buổi hẹn, Lâm Dã tìm đến người bán bản đồ ở đầu phố. Hắn muốn mua loại bản đồ chỉ rõ con đường “từ chén trà đầu tiên đến tình cảm trăm năm”.
+
+Người bán là cụ già mắt sáng, đưa hắn một tấm bản đồ thành Thanh Liễu. Trên giấy có cầu, đường, quán trà, hiệu sách và nhà hát, nhưng không có điểm nào đề tên “chiến thắng”.
+
+— Cụ bán nhầm rồi.
+
+— Ta bán đường đi, không bán lòng người.
+
+— Nếu chọn quán đẹp nhất, người ta có dễ thích con hơn không?
+
+Cụ già chỉ vào góc bản đồ:
+
+— Quán trên đồi đẹp nhưng đường xa. Quán bên sông yên nhưng mùa này nước lên. Quán gần thư viện giản dị, tiện đường cho cả hai. Con định chọn cho người ấy vui, hay chọn cho người ta kinh ngạc trước công sức của con?
+
+Lâm Dã chọn quán gần thư viện. Cụ già hỏi thêm:
+
+— Nếu người ấy muốn đổi địa điểm?
+
+— Con sẽ hỏi xem nơi nào hai người đều thuận tiện.
+
+— Nếu người ấy không muốn đi?
+
+— Con tôn trọng.
+
+Cụ gật đầu. Một tấm bản đồ tốt không làm mọi người đi cùng đường; nó giúp người ta **biết đường mình đang đi và đường có thể về**.
+
+#### Chuyện cánh bánh nhỏ
+
+Ở quán trà, Tống Nguyệt gọi loại bánh nhân đậu đỏ. Lâm Dã không thích đậu đỏ lắm, nhưng vì sợ mất điểm, hắn suýt nói “Mình cũng thích nhất món này”.
+
+Rồi hắn nhớ lời thầy:
+
+— Mình thích bánh mè hơn. Nhưng nhìn phần đậu đỏ của cậu có vẻ ngon đấy.
+
+Tống Nguyệt cười:
+
+— Thế gọi mỗi người một loại, rồi có thể thử một miếng nếu muốn.
+
+Hai món bánh khác nhau nằm trên cùng chiếc bàn. Lâm Dã bỗng thấy một buổi hẹn có thể dễ chịu dù hai người không giống nhau mọi mặt.
+
+**Đồng điệu không phải lặp lại từng sở thích của người khác.** Sự thoải mái đôi khi đến từ việc khác nhau mà không phải tranh đúng sai.
+
+#### Vấn đáp về tiền và sự chăm sóc
+
+— Thầy, nếu con muốn mời người ta, có phải phải trả mọi thứ?
+
+— Con có thể mời trong khả năng và khi người ấy thoải mái. Nhưng nếu người ấy muốn chia, hãy tôn trọng.
+
+— Quà tặng có giúp thể hiện sự chân thành?
+
+— Có thể. Nhưng quà không phải hóa đơn tình cảm. Người tặng phải có thể chấp nhận người nhận không muốn nhận.
+
+— Nếu buổi hẹn kết thúc sớm?
+
+— Hãy cảm ơn, đừng níu. Sự an toàn và tự do của người khác không thấp hơn cảm giác tiếc nuối của con.
+
+#### Thi kệ: Hai chén trà
+
+> *Hai chén trà thơm trong quán nhỏ,*  
+> *Mỗi người một vị, vẫn cùng vui.*  
+> *Không cầu câu chuyện thành lời ước,*  
+> *Chỉ muốn ra về chẳng ngậm ngùi.*
+
+#### Thi kệ: Đường về
+
+> *Hẹn nhau một buổi không hẹn cả,*  
+> *Đường tới nên thông, lối về còn.*  
+> *Trân trọng người ngồi qua chén nước,*  
+> *Đừng đo tình cảm bởi tiền son.*
+
+#### Chương trình của một buổi hẹn tốt
+
+**Trước hẹn:** Thỏa thuận thời gian, địa điểm công cộng thuận tiện, ngân sách vừa sức và cách đi lại. Tránh bất ngờ khiến người khác khó lựa chọn.
+
+**Trong hẹn:** Hỏi rồi nghe; chia sẻ câu chuyện thật; tôn trọng sở thích khác; không ép tiếp xúc cơ thể; để người kia được kết thúc khi muốn.
+
+**Sau hẹn:** Nếu muốn gặp lại, nói rõ và nhẹ nhàng. Nếu không thấy hợp, cảm ơn chân thành. Không biến sự vui vẻ của buổi gặp thành cam kết chưa từng trao.
+
+**Bài tập:** Viết lại một kế hoạch hẹn khiến người kia vất vả thành kế hoạch thuận tiện hơn. Giải thích bạn đã điều chỉnh điều gì vì người đối diện, điều gì vì chính mình.
 
 ---
 

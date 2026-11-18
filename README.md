@@ -1,6 +1,22 @@
 # 📜 BÍ KÍP TÁN GÁI — TÂM PHÁP CHO ĐẠO HỮU ĐỘC THÂN
 
 
+## ✨ Đại tu văn chương — thêm ngoại truyện, thơ và lời bàn
+
+Bản mở rộng mới đào sâu cả **11 hồi** của *Hồng Trần Tình Thư*. Mỗi chương được bổ sung một **ngoại truyện riêng**, có tình huống mới, đối thoại, thi kệ, những câu ngắn đáng ghi nhớ và bài tập rút ra từ câu chuyện. Phần khảo giải thực hành cũ được giữ lại.
+
+### 📖 [THI TẬP THANH LIỄU — 44 khúc thơ và 55 lời bàn](bonus/thi-tap-thanh-lieu.md)
+
+Tuyển tập chia thành 11 chủ đề: nhập môn, tu thân, mở lời, nhắn tin, tín hiệu và ranh giới, hẹn hò, hài hước, bày tỏ, thất tình, đồng hành và tổng kết. Gồm **33 khổ thơ bốn câu, 11 câu đối hai vế, 55 câu nói ngắn** — sáng tác mới cho dự án.
+
+> *“Có thể học cách bước tới một người; không nên học cách khóa đường lùi của họ.”*
+
+**Lộ trình đọc đề xuất:** [Lời tựa](LOI-TUA-HONG-TRAN-TINH-THU.md) → Hồi I–XI trong mục lục bên dưới → [Tuyển thơ và danh ngôn](bonus/thi-tap-thanh-lieu.md) → bài tập ở cuối các chương.
+
+---
+
+
+
 ## 🪶 Hồng Trần Tình Thư — bản truyện cổ phong nguyên tác
 
 > *“Một lòng muốn cùng người ngắm trăng là tình. Muốn ép trăng chỉ soi nhà mình, ấy là tham.”*

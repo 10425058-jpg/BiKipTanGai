@@ -1,5 +1,7 @@
 # 06. 🎭 Khẩu công thượng thừa: Hài hước mà không thành “hài cốt”
 
+📚 **Thi tập mở rộng:** [44 khúc thơ và 55 lời bàn của Thanh Liễu](../bonus/thi-tap-thanh-lieu.md).
+
 ## HỒI BẢY — ĐẠO CỦA TIẾNG CƯỜI: MỘT LỜI ĐÚNG CHỖ HƠN TRĂM LỜI CỐ NÓI
 
 Dưới chân núi Thanh Liễu có một quán mì. Bà chủ quán tính tình vui vẻ, lúc nào cũng biết đem chuyện thường nhật kể thành một khúc hài. Khách ăn lỡ đánh đổ đũa, bà bảo: “Đũa nhà ta hôm nay có chí lớn, muốn ra ngoài hành tẩu giang hồ.” Nói rồi bà đưa đôi đũa mới, không để người làm rơi phải ngượng.
@@ -120,6 +122,72 @@ Hãy kể một chuyện bạn từng làm vụng về trong 100 từ: ba phần
 Mặc tiên sinh gấp sách, bảo:
 
 — Cười với nhau thì tốt. Cười trên nỗi khổ của nhau thì không. Người hiểu được hai chữ “với nhau” đã học được quá nửa đạo của tiếng cười.
+
+---
+
+### Ngoại truyện: Bài kiểm tra nụ cười ở quán mì
+
+Bà chủ quán mì Thanh Liễu tổ chức một cuộc thi: ai khiến cả quán cười sẽ được miễn tiền một bữa. Lâm Dã tham gia, mang theo bảy câu chơi chữ, ba chuyện tự trào và một câu thả thính mà chính hắn cũng không hiểu.
+
+Người thi trước kể chuyện một khách vấp ngã trước cửa quán. Vài người cười, nhưng người khách kia đỏ mặt, cúi đầu không nói. Bà chủ quán đặt đũa xuống.
+
+— Câu chuyện đó làm một người xấu hổ để nhiều người được vui. Quán ta không thiếu tiếng cười tới mức phải mua bằng thể diện của khách.
+
+Đến lượt Lâm Dã, hắn kể chuyện mình lần đầu học làm mì.
+
+— Mình nhào bột tưởng ngon lắm, đến lúc luộc mới biết sợi mì cứng như muốn dự kỳ thi võ trạng nguyên. Bà chủ nhìn nồi, hỏi ta đang làm mì hay rèn dây cung.
+
+Bà chủ quán cười lớn nhất.
+
+— Ta nói thế thật à?
+
+— Không ạ. Nhưng con nghĩ nếu bà nói, con sẽ thấy rất đúng.
+
+Khách trong quán cười theo. Lâm Dã được miễn một bữa; hắn lại mua thêm phần mì cho người bạn đi cùng. Sau này mỗi khi nhắc chuyện, bà chủ vẫn cười, còn hắn không cảm thấy mình bị hạ thấp.
+
+Mặc tiên sinh bảo:
+
+— Đấy mới là một tiếng cười có chỗ cho nhau. Kể điều vụng về của mình để mọi người cùng nhẹ lòng, khác với lôi sự vụng về của người khác ra làm mồi câu tiếng vỗ tay.
+
+#### Ba phẩm chất làm nên một câu nói có duyên
+
+**Đúng thời:** Người đang buồn cần được nghe, không cần bạn biểu diễn. Người đang vui có thể sẵn lòng đón nhận chuyện dí dỏm.
+
+**Đúng người:** Trêu thân mật chỉ phù hợp khi cả hai thật sự thoải mái. Mới quen thì cứ đùa về hoàn cảnh vô hại.
+
+**Đúng mức:** Một câu nhẹ có thể sáng cả cuộc trò chuyện. Mười lăm câu liên tục có thể khiến đối phương không còn chỗ kể chuyện mình.
+
+#### Công án: Người đánh trống
+
+Một người đánh trống hỏi thầy nhạc: “Con càng đánh lớn, sao người nghe càng bỏ đi?” Thầy đáp: “Trống hay không chỉ ở tiếng vang, còn ở khoảng lặng giữa hai tiếng.”
+
+Mặc tiên sinh mượn câu đó dạy Lâm Dã:
+
+— Lời nói cũng cần khoảng trống. Người biết dừng sau một câu hài, biết lắng nghe phản hồi, có khi đáng quý hơn người tìm mọi cách giành tiếng cười.
+
+#### Thi kệ: Tiếng cười
+
+> *Một tiếng cười nên chung bát nước,*  
+> *Đừng lấy ai buồn đổi cuộc vui.*  
+> *Lời thanh vốn chẳng cần dao sắc,*  
+> *Hoa nở đâu nhờ cắt lá tươi.*
+
+#### Thi kệ: Kể chuyện
+
+> *Chuyện nhỏ kể ra thành gió mát,*  
+> *Chớ đem câu chữ lấp lòng người.*  
+> *Hỏi nhau thêm một điều chưa biết,*  
+> *Vui ở đôi bên, chẳng riêng cười.*
+
+#### Lời đáp khi lỡ câu vô duyên
+
+Nếu người ấy nói “Câu đó làm mình khó chịu”, đừng đáp “Mình đùa thôi mà”. Hãy nói: “Mình xin lỗi, mình đã không nghĩ kỹ. Mình sẽ không lặp lại.”
+
+Nếu người ấy không cười nhưng vẫn bình thường, bạn không cần phân tích cơ mặt. Có thể tự trào rất nhẹ rồi chuyển chủ đề. Một tiếng cười không đến không phải thất bại tình cảm.
+
+#### Tập luyện không làm phiền người khác
+
+Hãy lấy ba chuyện thật trong tuần, viết mỗi chuyện thành bốn dòng: bối cảnh, điều mong đợi, điều bất ngờ, kết thúc. Chọn câu thú vị nhất; bỏ những câu đem ngoại hình hoặc nỗi đau của ai khác làm trò đùa. Kể với bạn bè muốn nghe, xin nhận xét và sửa.
 
 ---
 

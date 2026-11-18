@@ -1,5 +1,7 @@
 # 10. 🕹️ Phòng mô phỏng: 12 màn thực chiến
 
+📚 **Thi tập mở rộng:** [44 khúc thơ và 55 lời bàn của Thanh Liễu](../bonus/thi-tap-thanh-lieu.md).
+
 ## HỒI MƯỜI MỘT — ĐẠI KHẢO TÌNH THƯ VIỆN: MỘT TRĂM KIẾM KHÔNG BẰNG MỘT CHỮ RÕ
 
 Mùa xuân năm sau, Mặc tiên sinh mở cuộc khảo hạch tại thư quán. Không có võ đài, không có phù chú, càng không có giải thưởng “thần tốc thoát ế trong bảy ngày”. Trên bàn chỉ đặt một ấm trà, vài mảnh giấy và chiếc gương cũ.
@@ -209,6 +211,105 @@ Cả thư quán cười vang. Người đề nghị ăn chính là ông chủ qu
 **Người đọc có thể trở lại [32 tình huống thực chiến](#-phụ-bản-thực-chiến--20-màn-nâng-cao) ở phần dưới, chọn một tình huống rồi trả lời bằng sáu bước: sự kiện, cảm xúc, suy diễn, ranh giới, lựa chọn, bài học.**
 
 **Hết chính truyện Hồng Trần Tình Thư — Mở trang thực hành phía sau để tiếp tục tu luyện.**
+
+---
+
+### Ngoại truyện: Kỳ khảo cuối cùng không chấm điểm người yêu
+
+Sau lễ tốt nghiệp ở thư quán, Mặc tiên sinh nhận được thư của một học trò phương xa. Người ấy bảo đã đọc hết bí kíp, đã học cách nói chuyện, đã dám mời hẹn, đã tôn trọng mọi lời từ chối, vậy mà vẫn chưa tìm được người đồng hành. Anh lo mình chưa đỗ.
+
+Mặc tiên sinh đưa thư cho Lâm Dã, hỏi:
+
+— Con sẽ đáp thế nào?
+
+Lâm Dã nghĩ một lúc rồi viết:
+
+> “Nếu học bơi mà chưa có dịp vượt sông, chẳng lẽ những buổi tập thở và giữ nổi thân mình đều vô nghĩa? Nếu học cách nói thật mà chưa có người cùng lòng, chẳng lẽ sự chân thật không đáng quý? Học tình cảm trước hết là học cách làm người biết thương, biết nghe, biết giữ mình.”
+
+Thầy đọc xong, gật đầu, rồi thêm một câu:
+
+> “Nhưng cũng đừng biến việc trưởng thành thành tờ chứng chỉ để đòi người khác chọn mình.”
+
+Họ gửi thư đi. Đêm đó thư quán đốt đèn rất muộn. Mặc tiên sinh lấy bản thảo *Hồng Trần Tình Thư* ra rà soát, tự hỏi liệu những câu hoa mỹ có che lấp điều thiết yếu hay không.
+
+Ông bèn viết thêm mấy chữ ở trang đầu:
+
+> *“Thơ giúp lòng người rung động; đạo lý giúp tay người biết dừng.”*
+
+#### Đại khảo: Tám câu hỏi không có điểm tình yêu
+
+**Một:** Người ấy mời đi uống trà. Bạn biết chắc điều gì?  
+Bạn biết **họ muốn buổi uống trà đó**, không biết chắc cả tương lai.
+
+**Hai:** Họ từ chối. Bạn có thể vẫn buồn?  
+Có. Buồn là cảm xúc, đừng biến thành hành vi ép buộc.
+
+**Ba:** Bạn đã giúp nhiều việc. Họ có nợ bạn tình cảm?  
+Không. Công sức cho đi không tạo nghĩa vụ yêu đương.
+
+**Bốn:** Bạn có thể nói không ngay cả khi đang yêu?  
+Có. Tình yêu không xóa ranh giới.
+
+**Năm:** Bạn lỡ nói điều khiến người khác khó chịu. Sửa sao?  
+Nhận lỗi, xin lỗi, thay đổi; đừng bảo họ quá nhạy cảm.
+
+**Sáu:** Bạn muốn biết người kia có thích mình không. Có cần đoán qua từng emoji?  
+Không. Nhìn sự tương hỗ, khi phù hợp thì hỏi rõ một cách tôn trọng.
+
+**Bảy:** Người ấy không muốn liên lạc nữa. Có được nhờ bạn hỏi hộ?  
+Không. Phải tôn trọng quyết định và dừng tiếp cận.
+
+**Tám:** Không có người yêu sau khi học hết sách. Bạn có thất bại?  
+Không. Sự trưởng thành không có bảng xếp hạng quan hệ.
+
+#### Công án cuối: Chiếc ghế thứ hai
+
+Ngày Lâm Dã rời thư quán, hắn thấy bên án thư vẫn đặt hai chiếc ghế. Một chiếc nơi Mặc tiên sinh ngồi đọc sách, chiếc còn lại thường dành cho khách.
+
+— Thầy, nếu không có khách đến, sao thầy còn đặt thêm một ghế?
+
+Ông đáp:
+
+— Vì ta sẵn lòng đón khách. Không vì thế mà yêu cầu phải có khách mỗi ngày.
+
+Lâm Dã nhìn chiếc ghế trống, đột nhiên hiểu ra rất nhiều.
+
+Chừa chỗ cho người khác bước vào đời mình không đồng nghĩa đời mình thiếu sót khi chỗ ấy vẫn trống. Và nếu có người đến, họ không phải vật trang trí để hoàn chỉnh căn phòng.
+
+— Con hiểu rồi, — hắn nói.
+
+Mặc tiên sinh bật cười:
+
+— Con nói thế sau mỗi chương. Ta chỉ mong ra khỏi cửa, gặp chuyện mới, con còn chịu học tiếp.
+
+#### Thi kệ: Ghế trống
+
+> *Ghế trống bên bàn chưa phải thiếu,*  
+> *Chỉ là còn chỗ đón người sang.*  
+> *Khách đến cùng vui câu chuyện mới,*  
+> *Khách chưa tới, sách vẫn đầy trang.*
+
+#### Thi kệ: Hết sách
+
+> *Hết sách chưa xong điều nhân thế,*  
+> *Một đời còn lắm việc phải tu.*  
+> *Biết thương, biết hỏi, rồi biết dừng,*  
+> *Mấy chữ đơn sơ đủ ngàn thu.*
+
+#### Khảo hạch viết riêng
+
+Hãy chọn một chuyện thật trong cuộc sống: bạn đã nhắn tin, đã mở lời, đã mời hẹn, đã bị từ chối, hoặc đã tranh luận với người yêu. Viết sáu đoạn ngắn:
+
+1. **Điều gì xảy ra thực tế?**
+2. **Tôi đã cảm thấy gì?**
+3. **Điều gì tôi chỉ đang suy đoán?**
+4. **Ranh giới nào của mỗi người cần tôn trọng?**
+5. **Tôi có thể hành động tử tế hơn thế nào?**
+6. **Bài học nào vẫn hữu ích dù kết quả tình cảm không thay đổi?**
+
+Cuối trang, thêm một câu bạn muốn tự nhắc mình khi lòng vội. Đó có thể là câu nói hay nhất của cuốn sách, vì chính đời bạn đã viết ra nó.
+
+**Lời ghi nơi trang cuối:** “Người học nhiều chữ mà chưa biết tôn trọng một chữ ‘không’ thì vẫn thiếu bài học căn bản. Người học ít mà biết yêu thương có chừng mực đã bước rất xa.”
 
 ---
 

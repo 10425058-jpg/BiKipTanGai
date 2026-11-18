@@ -1,5 +1,7 @@
 # 01. 🛠️ Luyện nội công: Nâng cấp bản thân trước khi nâng cấp trạng thái quan hệ
 
+📚 **Thi tập mở rộng:** [44 khúc thơ và 55 lời bàn của Thanh Liễu](../bonus/thi-tap-thanh-lieu.md).
+
 ## HỒI HAI — TU THÂN CHẲNG PHẢI ĐỂ CHÀO HÀNG BẢN THÂN
 
 Sáng hôm sau, Lâm Dã dậy thật sớm, tìm đến thư quán với bộ áo mới may. Áo xanh có thêu chim hạc, đai lưng đính ngọc, giày trắng vừa mới lấy ở tiệm. Đệ tử đứng dưới cây hạnh, xoay nửa vòng hỏi thầy:
@@ -110,6 +112,78 @@ Lâm Dã nhìn bát mì. Sợi mì cong cong, trong giây lát bỗng tựa mộ
 **Ngày bảy:** Tự hỏi: “Nếu người ấy không thấy, mình có vẫn muốn tiếp tục việc tốt này không?”
 
 **Lời phê của Mặc tiên sinh:** *“Tu thân vì muốn làm người tốt hơn, ấy là đường dài có nền móng. Tu thân chỉ để lọt vào mắt một người, đường ấy xây trên ánh nhìn, gió đổi hướng là nhà nghiêng.”*
+
+---
+
+### Ngoại truyện: Chiếc gương nứt của người học trò
+
+Ở cuối chợ Thanh Liễu có tiệm làm gương do một bà cụ trông coi. Gương trong tiệm có chiếc sáng, chiếc mờ, chiếc mẻ góc. Một hôm Lâm Dã tới, hỏi bà có tấm gương nào soi lên khiến mình trông nổi bật hơn không.
+
+Bà cụ đưa hắn chiếc gương mẻ. Trong đó, gương mặt hắn chia thành hai mảnh, một mảnh sáng một mảnh tối.
+
+— Cậu nhìn thấy gì?
+
+— Thưa bà, mặt con bị méo.
+
+— Gương không làm mặt cậu méo. Nó chỉ khiến cậu không nhìn cho trọn.
+
+Lâm Dã kể rằng gần đây hắn hay thấy người khác giỏi hơn: có người đàn hay, có người nói chuyện duyên, có người diện mạo nổi bật. Mỗi lần so sánh, hắn lại muốn thay một phần bản thân. Học một ngày guitar, hai ngày thư pháp, ba ngày kiếm thuật; môn nào cũng chưa tới đầu tới đũa.
+
+Bà cụ bảo:
+
+— Mảnh gương nào cũng có giới hạn. Cậu nhìn qua ánh mắt một người rồi phán đoán toàn bộ giá trị mình, có khác nào dùng gương mẻ soi cả bầu trời?
+
+Chiều ấy, Mặc tiên sinh thấy hắn ngồi chăm chú tập chụp ảnh dưới cây hạnh. Bức thứ nhất quá tối, bức thứ hai nhòe, bức thứ ba chỉ chụp được nửa bông hoa. Hắn vẫn kiên nhẫn chỉnh lại.
+
+— Sao hôm nay không đi tìm thêm một tuyệt kỹ mới? — thầy hỏi.
+
+— Vì con nhận ra mình chưa từng học đến nơi đến chốn thứ mình thật sự thích.
+
+Mặc tiên sinh chắp tay sau lưng:
+
+— Chuyên tâm không bảo đảm có người yêu, nhưng có thể cho con một đời sống đáng sống. Đời sống ấy là của con, không phải bộ y phục mặc vào để đi ứng tuyển tình cảm.
+
+#### Khảo về “phong thái”
+
+Phong thái không nằm ở một tư thế đứng góc bốn mươi lăm độ. Nó hình thành từ việc bạn có biết chăm sóc thân thể, cư xử đúng lúc, giữ lời hẹn, kể câu chuyện của mình mà không cần khoa trương.
+
+Có người rất ít nói nhưng khi đã hứa sẽ tới, họ tới. Có người nói năng lưu loát nhưng lúc ai cần lại biến mất. Không phải tất cả người nghe đều thích một kiểu tính cách, nhưng sự đáng tin là phẩm chất có thể rèn bằng hành động cụ thể.
+
+**Bài tập thực hành:** Chọn một kỹ năng bạn thật lòng muốn học. Mỗi tuần dành ba buổi ngắn, ghi một điều tiến bộ và một điều chưa biết. Sau bốn tuần, hãy kể lại việc học ấy trong một phút — không cần phóng đại.
+
+#### Vấn đáp ba câu
+
+— Thưa thầy, tự tin có phải cho rằng mình hơn người?
+
+— Không. Tự tin là biết mình có thể thử, có thể sai, có thể sửa, chẳng cần thắng ai mới dám đứng thẳng.
+
+— Khiêm tốn có phải cứ nói mình kém?
+
+— Không. Nếu làm được thì nhận đã làm được. Nếu chưa biết thì nói chưa biết. Tự hạ nhục cũng là một dạng quanh co với sự thật.
+
+— Muốn hấp dẫn có cần phải giàu?
+
+— Tiền bạc có thể mở nhiều tiện nghi, không mở thay cánh cửa của lòng người. Hãy sống có trách nhiệm với việc học, nghề nghiệp và chi tiêu; đừng vay tiền mua lấy vẻ hào nhoáng.
+
+#### Thi kệ: Trồng cây
+
+> *Gieo một mầm xanh nơi đất vắng,*  
+> *Chẳng vì ai ngắm mới đơm hoa.*  
+> *Rễ sâu giữ vững mùa mưa bão,*  
+> *Có khách qua vườn, cứ mời trà.*
+
+#### Thi kệ: Áo vải
+
+> *Áo vải thanh tân không kém gấm,*  
+> *Một lời giữ hẹn quý hơn vàng.*  
+> *Người tu thân tự lo đèn sáng,*  
+> *Chẳng mượn ánh nhìn để vẻ vang.*
+
+#### Thực chiến: Bạn khen người khác, bạn chê chính mình
+
+Trong buổi học nhóm, một người nói: “Bạn giải thích dễ hiểu thật.” Đừng đáp: “Không đâu, mình dở lắm, chẳng có gì đáng khen.” Hãy thử: “Cảm ơn bạn. Mình đã luyện ví dụ này khá lâu, vui vì nó giúp được.”
+
+Một câu nhận lời khen giản dị giữ được sự thật. Không cần tự biến mình thành tượng đài, cũng không cần bắt ai nâng mình dậy mỗi lần họ nói điều tốt.
 
 ---
 

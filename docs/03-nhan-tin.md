@@ -1,5 +1,7 @@
 # 03. 📱 Phi thư truyền tình: Nhắn tin không biến thành tổng đài CSKH
 
+📚 **Thi tập mở rộng:** [44 khúc thơ và 55 lời bàn của Thanh Liễu](../bonus/thi-tap-thanh-lieu.md).
+
 ## HỒI BỐN — MỘT BỨC THƯ KHÔNG PHẢI MỘT SỢI DÂY BUỘC NGƯỜI
 
 Có lần Lâm Dã ngồi trong thư quán từ sớm tới tối, mắt chăm chăm nhìn một tấm thẻ gỗ đặt trên bàn. Thẻ ấy là tín vật liên lạc của học viện, có thể nhận những dòng chữ ngắn từ bằng hữu phương xa.
@@ -136,6 +138,99 @@ Mặc tiên sinh hỏi:
 Lâm Dã cười, lại bị thầy sai quét sân. Quét xong hắn nhận được một tin trả lời về trà vải. Tin rất bình thường, hắn cũng vui rất bình thường. Người ta gọi đó là tiến bộ.
 
 **Đề ôn tập:** Viết ba tin nhắn cho ba mục đích khác nhau: hỏi việc, nối chuyện và mời hẹn. Với mỗi tin, viết thêm một cách ứng xử nếu người ấy không đáp. Câu “gửi thêm mười lần” không được tính điểm.
+
+---
+
+### Ngoại truyện: Bồ câu không phải lính đưa tin
+
+Ở thư quán có một con bồ câu xám tên A Thất, nhiệm vụ mang giấy báo cho những người quen. A Thất rất thông minh, trừ một chuyện: nếu chủ nhân gửi ba thư liên tiếp thì nó nổi giận, đậu trên mái nhà không chịu bay.
+
+Lâm Dã từng thử buộc hai mảnh giấy vào chân nó, lại dặn đi dặn lại. A Thất vỗ cánh, khiến một mảnh giấy rơi xuống bát trà của Mặc tiên sinh.
+
+Ông vớt giấy lên:
+
+— Con viết gì mà gấp thế?
+
+— “Bạn nhận được thư chưa?” và “Nếu nhận rồi sao chưa đáp?”
+
+Ông nhìn con chim đang thong thả rỉa lông:
+
+— A Thất chưa kịp tới nơi, đã phải chịu áp lực thay người nhận.
+
+Lâm Dã xấu hổ. Một bức thư vốn nên chứa điều muốn chia sẻ, vậy mà hắn dùng nó để đòi một sự xác nhận rằng mình vẫn quan trọng.
+
+Mặc tiên sinh lấy giấy khác viết:
+
+> “Cảm ơn bạn đã giới thiệu cuốn sách. Mình đọc đến đoạn người thợ mộc và thấy thú vị. Khi nào tiện, muốn nghe bạn nghĩ gì về đoạn kết.”
+
+Ông trao cho Lâm Dã xem.
+
+— Có khác gì?
+
+— Thưa thầy, có điều cụ thể để người nhận nói tiếp. Và người ấy không cần bỏ mọi việc để trả lời ngay.
+
+— Đúng. Viết thư hay chẳng ở số chữ, mà ở điều ta gửi có đáng đọc và có cho người nhận thảnh thơi hay không.
+
+#### Bàn về ba thứ thời gian
+
+**Thời gian của người viết:** Bạn có thể muốn chia sẻ ngay vì đang vui, buồn, hồi hộp. Cảm xúc ấy có thật.
+
+**Thời gian của người đọc:** Người ấy có lịch sống, công việc, việc nhà, nhu cầu nghỉ ngơi. Điều này không cần phải xin phép bạn.
+
+**Thời gian của mối quan hệ:** Hai người có thể tiến gần qua nhiều cuộc nói chuyện, nhưng cũng có thể dừng. Không có số phút nhắn tin nào tự đổi thành cam kết.
+
+Mọi cuộc giao tiếp tốt đều học cách để ba thứ thời gian này không giẫm lên nhau.
+
+#### Ba câu thư nên nhớ
+
+> **Thư để kể chuyện, không để điểm danh.**  
+> **Có hồi âm thì trân trọng; không có thì đừng dựng một phiên tòa.**  
+> **Muốn gặp thì mời rõ, đừng gửi mười câu đố về duyên phận.**
+
+#### Cảnh nhỏ: Trả lời tin nhắn khi đang học
+
+Bạn của Lâm Dã là Bạch Tân vốn chịu khó học nhưng cứ có âm báo là mở máy. Một hôm hắn than làm bài ba giờ chưa xong.
+
+Mặc tiên sinh hỏi:
+
+— Con có chuyện cấp bách?
+
+— Không. Chỉ sợ người ấy nghĩ con không quan tâm.
+
+— Vậy con có thể báo rằng mình đang học, tối trả lời; rồi thật sự học. Một mối quan hệ tốt không nên đòi con phải bỏ dở tất cả để chứng minh nó tồn tại.
+
+Bạch Tân gửi một câu ngắn, tắt thông báo rồi làm bài. Tối đó người bạn nhắn lại: “Mình cũng vừa xong việc, kể tiếp đi.” Cuộc trò chuyện chẳng mất đi, chỉ bớt gấp gáp.
+
+#### Thi kệ: Thư qua cửa gió
+
+> *Một lá thư bay qua phố nhỏ,*  
+> *Đường dài đâu tính bởi hồi âm.*  
+> *Chuyện có thì thưa bằng chữ thật,*  
+> *Người bận xin đừng ép hỏi thăm.*
+
+#### Thi kệ: Dấu chấm xanh
+
+> *Đèn sáng sau màn không hẹn ước,*  
+> *Một dòng “đã xem” chẳng định tình.*  
+> *Cất máy, còn bao trang sách mở,*  
+> *Đừng đem đời mình đợi bóng hình.*
+
+#### Khảo nghiệm tình huống
+
+**Người ấy nói:** “Tuần này mình làm đồ án, ít nhắn nhé.”  
+**Trả lời phù hợp:** “Ừ, chúc cậu làm đồ án tốt. Khi nào rảnh nói tiếp.”
+
+**Người ấy nói:** “Mình không muốn nhắn với bạn nữa.”  
+**Trả lời phù hợp:** “Mình hiểu và sẽ dừng.” Sau đó không liên hệ thêm, kể cả qua người khác.
+
+**Người ấy nói:** “Hôm nay mình vừa được điểm tốt!”  
+**Trả lời phù hợp:** “Chúc mừng! Cậu vui nhất ở phần nào?” nếu muốn nghe thêm. Không lập tức chuyển chuyện sang mình.
+
+**Không có hồi âm:** Bạn có thể thấy buồn hoặc lo. Nhưng việc cần làm không phải thám thính; hãy trở lại lịch sống của mình, đánh giá sự tương hỗ qua thời gian.
+
+#### Ghi chú của Mặc tiên sinh
+
+“Có bức thư gửi đi như một nhành hoa đặt bên cửa: người nhận muốn thì cầm lên, không muốn thì để đó. Có bức thư gửi đi như sợi dây thắt nút: không kéo về được thì giật mạnh. Hãy xem thư mình viết thuộc loại nào.”
 
 ---
 

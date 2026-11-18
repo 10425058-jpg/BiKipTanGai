@@ -1,5 +1,7 @@
 # 02. 💬 Mở lời không sượng: Từ “Hi” đến “Ủa, nói chuyện vui ghê”
 
+📚 **Thi tập mở rộng:** [44 khúc thơ và 55 lời bàn của Thanh Liễu](../bonus/thi-tap-thanh-lieu.md).
+
 ## HỒI BA — MỘT CÂU CHÀO, HAI NGƯỜI TỰ TẠI
 
 Hôm thành Thanh Liễu mở hội sách, Lâm Dã tìm cơ hội thực hành. Hắn đứng trước một cô nương đang xem tập du ký, trong lòng đọc thuộc hai mươi câu mở lời đã chép từ sách cũ.
@@ -149,6 +151,95 @@ Không cần làm giá giả lạnh lùng.
 Hãy viết **ba câu mở lời**: một trong buổi thảo luận nhóm, một ở sự kiện bạn cùng tham gia, một qua bài viết công khai. Sau mỗi câu, viết thêm hai kết thúc: khi người ấy hứng thú và khi họ muốn dừng.
 
 *Chưởng môn phê:* “Người có học vấn trong giao tiếp không phải người nói câu nào cũng như thơ. Người ấy biết khi nào một câu hỏi là niềm vui, và khi nào một câu hỏi trở thành gánh nặng.”
+
+---
+
+### Ngoại truyện: Bốn người dưới mái hiên
+
+Một ngày mưa, Lâm Dã cùng Mặc tiên sinh trú dưới mái hiên quán trà. Bên cạnh có một người đọc sách, một người ôm giỏ rau, một người đang dỗ con nhỏ, và một cô gái đeo tai nghe nhìn ra đường.
+
+Lâm Dã nghĩ: trời mưa, tất cả cùng đứng một chỗ, hẳn là cơ hội tốt để trò chuyện.
+
+Hắn định mở lời với người đang bế con thì nghe em bé khóc lớn. Hắn dừng lại. Thấy người ôm giỏ rau đang lo số rau bị ướt, hắn cũng không tìm câu tán tỉnh. Người đọc sách thỉnh thoảng ngẩng lên ngắm mưa, Lâm Dã hỏi:
+
+— Xin lỗi, cuốn trên tay bạn có phải tuyển tập du ký vùng bắc không? Mình vừa tìm sách về vùng ấy.
+
+Người kia đáp vui vẻ, kể vài địa danh. Họ trao đổi mấy câu về sách rồi thôi.
+
+Sau khi về quán, Mặc tiên sinh hỏi:
+
+— Con đã học được bao nhiêu cách mở lời?
+
+— Có lẽ một cách.
+
+— Chỉ một?
+
+— Dạ. Con học được phải chọn lúc nào không nên mở lời nữa.
+
+Ông vỗ tay cười:
+
+— Vậy hôm nay con tiến bộ nhất lớp.
+
+Người ngoài thường tưởng khả năng giao tiếp được đo bằng số cuộc nói chuyện bắt đầu. Kỳ thực, một người biết nhìn hoàn cảnh có khi **không nói** mà vẫn cho thấy sự tinh tế.
+
+#### Công án: Người gõ chuông
+
+Có một vị khách đến chùa, thấy chuông lớn thì muốn gõ. Sư ở đó nói chuông dùng báo giờ, không phải thích lúc nào cũng đánh. Khách hỏi: “Chuông sinh ra để kêu, sao không cho kêu?” Nhà sư đáp: “Lời con nói cũng sinh ra để được nghe, nhưng không phải tai người khác lúc nào cũng sẵn sàng.”
+
+Từ ấy, Lâm Dã học cách xem lời mở đầu như một lời mời, không phải một lệnh triệu tập.
+
+#### Một câu mở, ba nhánh đường
+
+**Bối cảnh:** Hai người ở sự kiện tranh ảnh.
+
+Bạn nói: “Mình thích cách bức này dùng màu lam. Bạn thích bức nào nhất?”
+
+**Nhánh người ấy hào hứng:** “Mình thích bức ở góc kia, vì nó giống quê mình.” Bạn có thể hỏi về điều họ thích, và kể một trải nghiệm liên quan.
+
+**Nhánh người ấy đáp ngắn:** “Mình không rõ.” Bạn có thể nhẹ nhàng: “À, cảm ơn bạn. Mình xem tiếp nhé.” Không biến khoảng im lặng thành cuộc điều tra.
+
+**Nhánh người ấy đang vội:** “Mình phải gặp bạn mình rồi.” Bạn đáp: “Vậy bạn đi nhé, chúc bạn xem triển lãm vui.” Không đi theo.
+
+Điểm chung của ba nhánh: câu nói của bạn vẫn lịch sự, dù kết quả khác nhau.
+
+#### Vấn đáp về “duyên”
+
+— Thầy, con có cần chuẩn bị câu mở đầu khiến người ta nhớ suốt đời?
+
+— Nếu là người vừa quen, nhớ được tên và chuyện vừa nói đã tốt.
+
+— Nhưng không độc đáo thì có bị nhạt?
+
+— Món cơm trắng ngày nào cũng ăn, chẳng vì thế mà vô nghĩa. Tự nhiên không phải nhạt; giả vờ mới dễ làm người ta mệt.
+
+— Nếu con lỡ nói vấp?
+
+— Thì sửa. Người biết cười trước sự vụng về nhỏ thường nhẹ lòng hơn người sống mãi trong nỗi sợ mất mặt.
+
+#### Thi kệ: Gặp gỡ
+
+> *Dưới mái hiên chung một trận mưa,*  
+> *Không ai vì thế phải nên duyên.*  
+> *Một câu hỏi nhỏ vừa khuôn phép,*  
+> *Trời tạnh rồi ai bước lối riêng.*
+
+#### Thi kệ: Lời chào
+
+> *Chào nhau đâu phải gieo lời ước,*  
+> *Hỏi chuyện nào mang ý buộc lòng.*  
+> *Tự tại khi người vui đáp lại,*  
+> *Ung dung khi khách bước sang sông.*
+
+#### Bài tập nâng cấp
+
+Chọn ba bối cảnh: nơi học nhóm, buổi sinh hoạt câu lạc bộ, quán sách. Với mỗi bối cảnh, ghi rõ:
+
+- **Điều quan sát được:** ví dụ người ấy đang xem sách công khai.
+- **Một câu mở có lý do:** không hỏi riêng tư quá sớm.
+- **Một cách nối nếu được đáp vui:** câu hỏi liên quan câu trả lời.
+- **Một cách kết nếu bị từ chối hoặc người ấy bận:** ngắn, không ép.
+
+Hãy tự đánh giá: câu mở của bạn có khiến người nghe **dễ từ chối** không? Nếu không, nên viết lại trước khi thử.
 
 ---
 

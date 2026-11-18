@@ -1,5 +1,7 @@
 # 07. 💌 Tỏ lòng: Nói thật không cần dàn nhạc giao hưởng
 
+📚 **Thi tập mở rộng:** [44 khúc thơ và 55 lời bàn của Thanh Liễu](../bonus/thi-tap-thanh-lieu.md).
+
 ## HỒI TÁM — LÁ THƯ DƯỚI MƯA: TÂM CÓ THỂ TỎ, DUYÊN KHÔNG THỂ CẦU
 
 Cuối thu, mây trôi thấp qua núi Thanh Liễu. Lá hạnh trước thư quán nhuộm vàng. Lâm Dã đem tới một bức thư gấp làm bốn, giấy dày, mực còn mới.
@@ -114,6 +116,76 @@ Thiếu niên ngồi xuống, nhìn ngọn lửa, cười khổ:
 4. Viết một kế hoạch chăm sóc bản thân cho ngày hôm sau, không phụ thuộc câu trả lời.
 
 **Lời phê của Mặc tiên sinh:** “Dám nói yêu là dũng. Dám nghe người khác không yêu mình là dũng lớn hơn. Không phải vì hết đau, mà vì vẫn giữ lễ khi đau.”
+
+---
+
+### Ngoại truyện: Chiếc phong bì không phong kín
+
+Sau khi nghe lời từ chối của Tống Nguyệt, Lâm Dã một lần nữa ngồi trước bàn viết, nhưng lần này hắn không định gửi thư. Hắn muốn hiểu tại sao bốn câu ngắn lại khó hơn ba nghìn chữ.
+
+Mặc tiên sinh đặt trước mặt trò ba phong bì.
+
+Phong thứ nhất đề: **Điều ta cảm thấy**. Phong thứ hai: **Điều ta mong muốn**. Phong thứ ba: **Điều người kia có quyền lựa chọn**.
+
+— Con hãy viết mỗi phong một câu.
+
+Lâm Dã viết:
+
+- *Ta cảm thấy:* Mình có tình cảm hơn mức bạn bè.
+- *Ta mong muốn:* Mình muốn cùng bạn tìm hiểu theo hướng hẹn hò.
+- *Quyền của người kia:* Bạn có thể đồng ý, không đồng ý, hoặc chưa muốn trả lời.
+
+Mặc tiên sinh không phong kín cả ba bức.
+
+— Vì sao không dán? — thiếu niên hỏi.
+
+— Vì đây là bài học, không phải giấy khế ước. Cảm xúc đổi, mong muốn đổi, lựa chọn đổi. Con phải luôn chừa một chỗ cho sự thật mới xuất hiện.
+
+Ông chỉ vào phong thứ ba:
+
+— Nếu con giữ câu này trong lòng, lời tỏ tình của con sẽ không biến thành món nợ.
+
+#### Điều khiến một lời bày tỏ có phẩm cách
+
+Nó **nói thật** nhưng không phóng đại. Nó **rõ mục đích** nhưng không đòi kết quả. Nó **mang cảm xúc** nhưng không bắt người kia chịu trách nhiệm chữa lành mọi nỗi buồn.
+
+Một người đứng dưới mưa nói “Nếu em không đồng ý, anh sẽ mãi đứng đây” có thể khiến người nghe sợ hãi, áy náy hoặc bị đe dọa, dù người nói tưởng mình lãng mạn. Đó không phải cách tôn trọng tự do.
+
+Một người khác chỉ nói “Mình thích bạn. Bạn có muốn tìm hiểu nhau không? Nếu không, mình hiểu” có thể không khiến màn trời rực sáng, nhưng giữ được khả năng lựa chọn cho cả hai.
+
+#### Vấn đáp nơi đèn khuya
+
+— Nếu con sợ người ta từ chối, có nên lặng lẽ chờ đến khi chắc chắn?
+
+— Con có thể chọn lúc phù hợp, nhưng không thể đạt sự chắc chắn tuyệt đối về lòng người bằng cách đọc dấu hiệu.
+
+— Nếu tỏ tình rồi không thành, liệu có phí thời gian?
+
+— Không phải việc thành đôi mới làm cuộc trò chuyện trước đó có giá trị. Con vẫn đã học cách thành thật và chịu trách nhiệm.
+
+— Có nên viết một bài thơ dài?
+
+— Nếu người ấy thích thơ và sẵn lòng nhận thì được. Nhưng thơ dài không được dùng thay quyền từ chối. Câu hay mà ép người cũng chẳng đẹp.
+
+#### Thi kệ: Lá thư chưa khép
+
+> *Mực viết ba dòng chưa khép vội,*  
+> *Một dòng tâm nguyện, một dòng mong.*  
+> *Dòng sau chừa chỗ người tự chọn,*  
+> *Để chữ tình không hóa chiếc lồng.*
+
+#### Thi kệ: Tỏ bày
+
+> *Ta nói lòng ta trong sáng sớm,*  
+> *Chẳng mượn mưa rơi ép người nghe.*  
+> *Có đáp thì cùng vun điều mới,*  
+> *Không cùng, xin giữ lối đi về.*
+
+#### Bài tập lời thật
+
+Hãy viết lời bày tỏ trong 80 từ, có ba phần như ba phong bì. Sau đó viết phiên bản 40 từ. Gạch bỏ mọi câu nhắc chuyện bạn “đã hy sinh”, “đã đợi quá lâu”, hoặc “sẽ không chịu nổi” nếu bị từ chối. Cuối cùng thử đọc với giọng bình tĩnh: người nghe có thể từ chối mà không thấy bị dồn vào góc hay không?
+
+**Lời phê:** “Một tấm lòng trao ra vẫn là tấm lòng. Nhưng khi dùng nỗi đau làm dây trói, nó không còn là lời tỏ bày, mà thành một lời buộc tội chưa được nói hết.”
 
 ---
 

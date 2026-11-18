@@ -1,5 +1,7 @@
 # 08. 🩹 Thất tình bất tử: Bị từ chối vẫn giữ phong độ
 
+📚 **Thi tập mở rộng:** [44 khúc thơ và 55 lời bàn của Thanh Liễu](../bonus/thi-tap-thanh-lieu.md).
+
 ## HỒI CHÍN — SAU CƠN MƯA, NÚI VẪN XANH: ĐẠO CỦA NGƯỜI BIẾT BUÔNG
 
 Ba ngày sau lời bày tỏ, Lâm Dã không tới thư quán. Mặc tiên sinh cũng không sai người đi thúc. Đến ngày thứ tư, ông ghé quán mì đầu phố, thấy thiếu niên ngồi bên cửa sổ nhìn làn khói trắng bốc lên từ bát nước dùng.
@@ -120,6 +122,80 @@ Sau hôm ấy hắn thấy lòng mình nhẹ hơn một chút. Không phải vì
 **Đề cuối chương:** Viết “điều tôi mất” và “điều tôi vẫn còn” thành hai cột. Đảm bảo cột thứ hai có cả bạn bè, năng lực, cơ hội, niềm vui, sức khỏe, quyền tự quyết. Bạn không phải phủ nhận cột thứ nhất; chỉ cần không để nó che hết nhân gian.
 
 **Lời phê:** “Buông tay không phải thua một người. Là nhớ ra bàn tay mình còn có thể cầm sách, nâng bát cơm, giúp bạn hữu và đón một ngày mới.”
+
+---
+
+### Ngoại truyện: Cây cầu không xây thêm
+
+Đông tới, con sông Thanh Liễu dâng nước. Cây cầu đá phía bắc bị lũ làm hư một đoạn, người qua lại phải chọn lối khác. Một thanh niên cứ đứng trước cầu, ngày nào cũng nhặt đá muốn lấp phần bị cuốn trôi. Dân làng bảo phải chờ đội sửa cầu, anh không nghe. Cuối cùng vấp ngã, tay bị thương.
+
+Mặc tiên sinh thấy chuyện, bảo Lâm Dã:
+
+— Có những con đường không đi được nữa. Con có thể buồn, có thể tiếc, có thể giúp sửa đúng cách nếu việc đó được mọi người cùng muốn. Nhưng nếu bờ bên kia đã đặt biển cấm qua, một mình khiêng đá đến cũng không biến thành quyền được bước tới.
+
+Lâm Dã đứng nhìn dòng nước, nghĩ đến những bức thư chưa gửi.
+
+— Thầy, con đã biết phải dừng. Nhưng biết rồi mà lòng vẫn nhớ.
+
+— Đó là hai chuyện khác nhau. Tay có thể dừng ngay, lòng đôi khi đi chậm. Đừng vì lòng còn nhớ mà bắt tay làm điều sai; cũng đừng vì đã dừng tay mà đòi lòng phải quên trong một đêm.
+
+Câu ấy khiến hắn nhẹ người. Bấy lâu hắn tự trách vì đã học đạo lý mà vẫn buồn. Nay mới hiểu: trưởng thành không phải cấm mình có cảm xúc; là học cách sống có trách nhiệm cùng cảm xúc ấy.
+
+#### Chuyện áo cũ
+
+Một hôm Lâm Dã tìm thấy chiếc áo từng mặc trong buổi hẹn đầu. Hắn cầm lên, ngồi rất lâu. Không phải chiếc áo tự mang ý nghĩa đau lòng, mà là kỷ niệm tự tìm đến.
+
+Mặc tiên sinh nói:
+
+— Con có thể giữ, cất, cho đi; chọn cách nào giúp con sống tốt hơn. Nhưng đừng đem nó thành bằng chứng đòi người ta trả lại chuyện cũ.
+
+Lâm Dã giặt áo, phơi ngoài nắng, rồi mặc nó đi chụp ảnh với nhóm bạn. Chiếc áo vẫn là chiếc áo, chỉ không còn bị buộc phải thuộc về một ngày duy nhất.
+
+#### Vấn đáp của một người đang buồn
+
+— Nếu con sống tốt hơn, nàng có quay lại không?
+
+— Ta không biết, cũng không muốn lấy điều đó làm mục tiêu cho con.
+
+— Nếu nàng hạnh phúc cùng người khác?
+
+— Con có thể thấy đau, rồi chọn không làm hại ai.
+
+— Nếu con chưa thể làm bạn?
+
+— Con có thể giữ khoảng cách một cách lịch sự. Đừng dùng khoảng cách ấy làm hình phạt hoặc phép thử.
+
+— Nếu con muốn tìm người mới để quên nhanh?
+
+— Hãy cẩn thận. Người mới không phải thuốc chữa cho một cuộc tình cũ. Chỉ bước tới khi con muốn tìm hiểu họ vì chính con người họ.
+
+#### Thi kệ: Bờ bên kia
+
+> *Có cầu đành để người sang trước,*  
+> *Có lối ta đi một phía trời.*  
+> *Thương nhớ chưa tan không hổ thẹn,*  
+> *Chỉ đừng lấy nhớ cản chân người.*
+
+#### Thi kệ: Áo phơi nắng
+
+> *Áo cũ qua mùa còn sợi chỉ,*  
+> *Nắng mới hong khô chuyện hôm nào.*  
+> *Vẫn giữ trong lòng điều tử tế,*  
+> *Không cần khơi lại một niềm đau.*
+
+#### Bài học về “người tốt nhưng không hợp”
+
+Một người lịch sự, đáng mến vẫn có thể không khiến bạn rung động. Bạn cũng có quyền từ chối một người tốt. Chính vì vậy, khi người khác từ chối bạn, không cần kết luận họ xấu hoặc bạn kém. Tình yêu không phải phần thưởng phải trao cho người tích lũy đủ công lao.
+
+Nếu buồn kéo dài đến mức ảnh hưởng mạnh việc ăn, ngủ, học, làm, hoặc có ý nghĩ tự làm hại, hãy tìm người tin cậy và hỗ trợ chuyên môn, khẩn cấp khi cần. Chẳng có huy chương nào dành cho việc chịu khổ một mình.
+
+#### Bài tập: Hai trang nhật ký
+
+**Trang đầu: những điều mình tưởng sẽ có.** Viết thành thật về các kỳ vọng của mình. Gạch dưới những điều **người kia chưa từng cùng hứa**.
+
+**Trang sau: những điều mình có thể làm hôm nay.** Ghi việc ăn, ngủ, gặp bạn, học tập, sở thích, một hành động tử tế. Không cần làm tất cả. Chọn hai việc nhỏ và thực hiện.
+
+Mặc tiên sinh phê: “Người vừa đánh mất một giấc mộng không cần lập tức đi tìm giấc mộng khác. Trước hết hãy tỉnh dậy, mở cửa sổ, thấy ngoài kia vẫn có gió.”
 
 ---
 

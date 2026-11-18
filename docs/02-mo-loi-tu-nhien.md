@@ -255,7 +255,7 @@ Hãy tự đánh giá: câu mở của bạn có khiến người nghe **dễ t�
 3. **Mutuality (qua lại):** Kể thêm về mình thay vì chỉ lấy thông tin.
 
 **Ví dụ cùng lớp:**
-- ❌ “Chào em, người đẹp cho anh làm quen nhé?” (khi hai người chưa nói chuyện)
+- ❌ “Chào em, người đẹp cho anh làm quen nhé?” 
 - ✅ “Hôm nay bài thuyết trình nhóm bạn có ví dụ hay ghê. Phần đó các bạn tìm tài liệu ở đâu vậy? Mình đang làm chủ đề gần giống.”
 
 **Ví dụ ở sự kiện sách:**

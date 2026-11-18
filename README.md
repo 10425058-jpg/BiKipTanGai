@@ -1,6 +1,27 @@
 # 📜 BÍ KÍP TÁN GÁI — TÂM PHÁP CHO ĐẠO HỮU ĐỘC THÂN
 
 
+## 📚 MỚI: Quyển II — Mười Một Lá Thư Thành Thanh Liễu
+
+Quyển II nối tiếp trực tiếp hành trình Lâm Dã sau kỳ khảo thư quán, gồm **11 hồi truyện dài mới** với xung đột có hệ quả, diễn biến tâm lý và nhân vật có cuộc sống độc lập. Cốt truyện xoay quanh một nhà in, một cuốn sách bị cám dỗ bởi lời hứa “trăm phần trăm”, và những nhân vật phải chọn cách hành xử khi đạo lý không còn nằm yên trên giấy.
+
+**[📖 ĐỌC QUYỂN II VÀ MỤC LỤC 11 HỒI](quyen-ii/README.md)**
+
+- [Chương 01 — Tấm biển một trăm phần trăm](quyen-ii/01-tam-bien-khong-tram-phan-tram.md)
+- [Chương 06 — Cuộc hẹn không có pháo hoa](quyen-ii/06-cuoc-hen-khong-co-phao-hoa.md)
+- [Chương 08 — Lá thư không cần người nhận](quyen-ii/08-la-thu-khong-can-nguoi-nhan.md)
+- [Chương 11 — Mưa trên trang sách chưa in](quyen-ii/11-mua-tren-trang-sach-chua-in.md)
+- [Ba bức thư không gửi — Những tiếng nói độc lập](quyen-ii/ba-buc-thu-khong-gui.md)
+- [Sổ tay nhân vật và niên biểu](quyen-ii/so-tay-nhan-vat.md)
+
+**Cách đọc:** Quyển I (11 chương lý thuyết và truyện) → Quyển II (11 hồi nối tiếp) → Thi tập Thanh Liễu → bài luyện cuối mỗi hồi. Mỗi hồi Quyển II dẫn về phần kiến thức tương ứng ở Quyển I; **các chương cũ không bị thay thế**.
+
+> *“Đừng viết truyện khiến một lời từ chối trở thành chướng ngại phải vượt. Hãy viết truyện khiến nhân vật biết sống ngay cả sau lời từ chối.”*
+
+---
+
+
+
 ## ✨ Đại tu văn chương — thêm ngoại truyện, thơ và lời bàn
 
 Bản mở rộng mới đào sâu cả **11 hồi** của *Hồng Trần Tình Thư*. Mỗi chương được bổ sung một **ngoại truyện riêng**, có tình huống mới, đối thoại, thi kệ, những câu ngắn đáng ghi nhớ và bài tập rút ra từ câu chuyện. Phần khảo giải thực hành cũ được giữ lại.

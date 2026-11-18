@@ -72,3 +72,10 @@ Mỗi chương có **hai tầng đọc**: (1) một hồi truyện cổ phong đ
 ## Mở rộng thi văn Thanh Liễu
 
 Ngoài chính truyện 11 hồi và phần khảo giải, thư quán còn lưu giữ [**Thi tập Thanh Liễu — 44 khúc thơ, 55 lời bàn**](bonus/thi-tap-thanh-lieu.md). Mỗi hồi cũng có một ngoại truyện mới viết, thêm cuộc vấn đáp và bài luyện ứng xử. Mọi câu thơ, lời bàn là sáng tác mới với cảm hứng cổ phong chung; không trích tác phẩm khác.
+
+
+---
+
+## Đọc tiếp phần hậu truyện
+
+Sau chính truyện và bài tập của Quyển I, bạn có thể đọc [**Quyển II — Mười Một Lá Thư Thành Thanh Liễu**](quyen-ii/README.md). Phần này có 11 hồi truyện dài nối tiếp, ba bức thư độc thoại và sổ tay nhân vật, đồng thời giữ các nguyên tắc tự nguyện, ranh giới và sự chân thành.
